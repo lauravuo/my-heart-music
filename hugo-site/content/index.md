@@ -1,8 +1,7 @@
-
-My Top Tracks on 4th of December 2021
+# Top Tracks
 
 ## [Adele: Strangers By Nature](https://open.spotify.com/track/13CVSGLSFl4UxpDVR6u3dq)
-![Adele!](https://i.scdn.co/image/ab67616d00001e02c6b577e4c4a6d326354a89f7)
+![Adele!](https://i.scdn.co/image/ab67616d0000b273c6b577e4c4a6d326354a89f7)
 
 ## [Adele: I Drink Wine](https://open.spotify.com/track/6v0UJD4a2FtleHeSYVX02A)
 ![Adele!](https://i.scdn.co/image/ab67616d0000b273c6b577e4c4a6d326354a89f7)
