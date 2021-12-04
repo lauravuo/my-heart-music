@@ -1,4 +1,4 @@
-baseurl = "/"
+baseurl = "/my-heart-music/"
 languageCode = "en-us"
 theme = "terminal"
 paginate = 5
