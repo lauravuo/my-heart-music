@@ -1,4 +1,4 @@
-My top tracks, updated on 12/4/2021, 10:58:14 PM
+My top tracks, updated on 12/4/2021, 11:14:02 PM
 
 ## [Adele: Strangers By Nature](https://open.spotify.com/track/13CVSGLSFl4UxpDVR6u3dq)
 ![Adele!](https://i.scdn.co/image/ab67616d00001e02c6b577e4c4a6d326354a89f7)
