@@ -18,6 +18,7 @@ jobs:
       - run: |
           git config --global user.email "spotify-bot"
           git config --global user.name "spotify-bot"
+          cp tracks.md hugo-site/content/index.md
           git add tracks.*
           git commit -a -m "Add latest tracks."
           git push
