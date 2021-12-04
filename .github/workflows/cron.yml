@@ -1,4 +1,4 @@
-name: spotify-box
+name: spotify-bot
 on:
   workflow_dispatch:
   #  schedule:
@@ -16,6 +16,8 @@ jobs:
           SPOTIFY_CLIENT_SECRET: ${{ secrets.SPOTIFY_CLIENT_SECRET }}
           SPOTIFY_REFRESH_TOKEN: ${{ secrets.SPOTIFY_REFRESH_TOKEN }}
       - run: |
+          git config --global user.email "spotify-bot"
+          git config --global user.name "spotify-bot"
           git add tracks.json
           git commit -a -m "Add latest tracks."
           git push
