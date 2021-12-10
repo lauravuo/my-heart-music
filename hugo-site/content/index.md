@@ -1,4 +1,4 @@
-My monthly top tracks, updated on 12/8/2021, 11:25:21 AM
+My monthly top tracks, updated on 12/10/2021, 12:58:52 AM
 
 ## [Adele: Strangers By Nature](https://open.spotify.com/track/13CVSGLSFl4UxpDVR6u3dq)
 ![Adele!](https://i.scdn.co/image/ab67616d00001e02c6b577e4c4a6d326354a89f7)
@@ -51,11 +51,11 @@ My monthly top tracks, updated on 12/8/2021, 11:25:21 AM
 ## [Adele: Love Is A Game](https://open.spotify.com/track/2j3GxEsbNYNeEzz86wDY4J)
 ![Adele!](https://i.scdn.co/image/ab67616d00001e02c6b577e4c4a6d326354a89f7)
 
+## [ABREU: Huuliharppu (Antonio) [Vain elämää kausi 12]](https://open.spotify.com/track/5HBo7k1XiCzJ7RY9LcZWkD)
+![ABREU!](https://i.scdn.co/image/ab67616d00001e0234017f2a4e73a9d6311f005b)
+
+## [Tuure Kilpeläinen: Yhen elämän juttu - Vain elämää kausi 12](https://open.spotify.com/track/5sTXDiG3jFWQeWTW46qYuM)
+![Tuure Kilpeläinen!](https://i.scdn.co/image/ab67616d00001e0283ba15f296100bb2d5a3dd8c)
+
 ## [Johann Sebastian Bach: Christmas Oratorio, BWV 248: Grosser Herr, und starker König (bass)](https://open.spotify.com/track/3GjFMd2SoW4JL37pd7ffG2)
 ![Johann Sebastian Bach!](https://i.scdn.co/image/ab67616d00001e02f0baec94d016c9a699d171f1)
-
-## [Tore Bojsten: Fairytale of New York - Acoustic](https://open.spotify.com/track/3uzN1R0ZnfYFaCAW6MG4H9)
-![Tore Bojsten!](https://i.scdn.co/image/ab67616d00001e02acd61a8f018eece9aca73b38)
-
-## [Tuure Kilpeläinen: Suomen muotoisen pilven alla - Vain elämää kausi 12](https://open.spotify.com/track/41GTUasdIs2hlhDfFjgK01)
-![Tuure Kilpeläinen!](https://i.scdn.co/image/ab67616d00001e0268e8df87b0651eee62c79e5f)
