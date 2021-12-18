@@ -1,4 +1,4 @@
-My monthly top tracks, updated on 12/18/2021, 9:01:56 AM
+My monthly top tracks, updated on 12/18/2021, 9:49:59 AM
 
 ## [Adele: I Drink Wine](https://open.spotify.com/track/6v0UJD4a2FtleHeSYVX02A)
 ![Adele!](https://i.scdn.co/image/ab67616d00001e02c6b577e4c4a6d326354a89f7)
