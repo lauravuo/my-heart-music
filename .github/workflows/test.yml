@@ -1,0 +1,10 @@
+name: spotify-bot
+on:
+  push
+jobs:
+  updateTopTracks:
+    runs-on: ubuntu-latest
+    steps:
+      - uses: actions/checkout@v2
+      - run: |
+          jq --version
