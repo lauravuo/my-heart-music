@@ -51,6 +51,17 @@ jobs:
       - name: Test
         run: ./test/verify.sh ./hugo-site/public/index.html
 
+      - name: Version
+        run: |
+          VERSION_NBR=$(cat VERSION)
+          NEW_VERSION="${VERSION_NBR%.*}.$((${VERSION_NBR##*.} + 1))"
+          echo "$NEW_VERSION" > VERSION
+          git config --global user.email "deploy-bot"
+          git config --global user.name "deploy-bot"
+          git commit -a -m "Update version to $NEW_VERSION."
+          git push
+          echo "$(cat VERSION) "$(date)"" > ./hugo-site/public/version.txt
+
       - name: Deploy
         uses: peaceiris/actions-gh-pages@v3
         with:

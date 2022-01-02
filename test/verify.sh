@@ -20,6 +20,8 @@ else
   res=$(cat "$src")
 fi
 
+echo "Result: $res"
+
 res=$(echo $res | grep "$find_str")
 
 if [ -z "$find_str" ]; then
