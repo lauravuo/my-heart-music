@@ -69,9 +69,14 @@ jobs:
           publish_dir: ./hugo-site/public
 
   verify-site:
-    # todo: verify version
     needs: deploy
     runs-on: ubuntu-latest
+    env:
+      DEPLOY_URL: https://lauravuo.github.io/my-heart-music/
     steps:
       - uses: actions/checkout@v2
-      - run: ./test/verify.sh https://lauravuo.github.io/my-heart-music/
+        with:
+          ref: main
+
+      - run: ./test/version.sh $DEPLOY_URL
+      - run: ./test/verify.sh $DEPLOY_URL
