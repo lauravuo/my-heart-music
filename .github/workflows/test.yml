@@ -1,0 +1,30 @@
+name: spotify-bot
+on:
+  push
+jobs:
+  test:
+    runs-on: ubuntu-20.04
+    steps:
+      - uses: actions/checkout@v2
+        with:
+          submodules: recursive
+          fetch-depth: 1
+
+      - name: Setup Hugo
+        uses: peaceiris/actions-hugo@v2
+        with:
+          hugo-version: '0.91.2'
+          extended: true
+
+      # - uses: actions/setup-node@v2
+      #   with:
+      #     node-version: '14.x'
+
+      # - name: install deps
+      #   run: cd hugo-site && npm ci
+
+      - name: Build
+        run: cd hugo-site && hugo --minify
+
+      - name: Test
+        run: ./test/verify.sh ./hugo-site/public/index.html
