@@ -1,5 +1,8 @@
 # my-❤️-music
 
+[![test](https://github.com/lauravuo/my-heart-music/actions/workflows/test.yml/badge.svg)](https://github.com/lauravuo/my-heart-music/actions/workflows/test.yml)
+[![deploy](https://github.com/lauravuo/my-heart-music/actions/workflows/deploy.yml/badge.svg)](https://github.com/lauravuo/my-heart-music/actions/workflows/deploy.yml)
+
 This project is a PoC for utilizing GitHub Action workflows for static website generation.
 
 The idea is to create static websites with low or zero coding:

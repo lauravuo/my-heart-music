@@ -1,4 +1,4 @@
-name: spotify-bot
+name: deploy
 on:
   workflow_dispatch:
   schedule:
@@ -6,7 +6,7 @@ on:
   push:
     branches: main
 jobs:
-  updateTopTracks:
+  spotify-fetch:
     runs-on: ubuntu-latest
     steps:
       - uses: actions/checkout@v2
@@ -23,7 +23,7 @@ jobs:
           git commit -a -m "Add latest tracks."
           git push
   deploy:
-    needs: updateTopTracks
+    needs: spotify-fetch
     runs-on: ubuntu-20.04
     steps:
       - uses: actions/checkout@v2
