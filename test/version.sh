@@ -8,13 +8,28 @@ if [ -z "$src" ]; then
   exit 1
 fi
 
-res=$(curl -s "$src/version.txt")
 version=$(cat ./VERSION)
 
-if [[ $res == "$version"* ]]; then
-  echo "Expected version $version found."
-  exit 0
-fi
+matchVersion() {
+  res=$(curl -s "$src/version.txt")
 
-echo "Version mismatch: $res (found) - $version (expected)"
-exit 1
+  if [[ $res == "$version"* ]]; then
+    return 0
+  else
+    return 1
+  fi
+}
+
+NOW=${SECONDS}
+printf "Wait until deployment is ready\n"
+while ! matchVersion; do
+  printf "."
+  waitTime=$(($SECONDS - $NOW))
+  if ((${waitTime} >= 60)); then
+    printf "\nVersion mismatch: $res (found) - $version (expected)\n"
+    exit 1
+  fi
+  sleep 1
+done
+
+printf "\nExpected version $version found.\n"
