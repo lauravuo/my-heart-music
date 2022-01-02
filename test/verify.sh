@@ -2,9 +2,9 @@
 
 set -e
 
-site_url=$1
-if [ -z "$site_url" ]; then
-  echo "Usage: $0 <site_url>"
+src=$1
+if [ -z "$src" ]; then
+  echo "Usage: $0 <src>"
   exit 1
 fi
 
@@ -14,10 +14,16 @@ track=$(cat tracks.json | jq --raw-output '.items[0] .name')
 find_str=">$artist: $track</a>"
 echo "Finding $find_str"
 
-res=$(curl -s "$site_url" | grep "$find_str")
-if [ -z "$find_str" ]; then
-  echo "Failed to find $find_str in $site_url"
-  exit 1
+if [[ $src == http* ]]; then
+  res=$(curl -s "$src")
+else
+  res=$(cat "$src")
 fi
 
-echo "Successfully found string $find_str in $site_url"
+res=$(echo $res | grep "$find_str")
+
+if [ -z "$find_str" ]; then
+  echo "Failed to find $find_str in $src"
+  exit 1
+fi
+echo "Successfully found string $find_str in $src"

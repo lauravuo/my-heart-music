@@ -35,7 +35,7 @@ jobs:
       - name: Setup Hugo
         uses: peaceiris/actions-hugo@v2
         with:
-          hugo-version: 'latest'
+          hugo-version: '0.91.2'
           extended: true
 
       # - uses: actions/setup-node@v2
@@ -48,12 +48,17 @@ jobs:
       - name: Build
         run: cd hugo-site && hugo --minify
 
+      - name: Test
+        run: ./test/verify.sh ./hugo-site/public/index.html
+
       - name: Deploy
         uses: peaceiris/actions-gh-pages@v3
         with:
           github_token: ${{ secrets.GITHUB_TOKEN }}
           publish_dir: ./hugo-site/public
+
   verify-site:
+    # todo: verify version
     needs: deploy
     runs-on: ubuntu-latest
     steps:
