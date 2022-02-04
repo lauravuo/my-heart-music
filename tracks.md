@@ -1,4 +1,4 @@
-My monthly top tracks, updated on 1/28/2022, 12:59:16 AM
+My monthly top tracks, updated on 2/4/2022, 12:58:34 AM
 
 ## [Ludovico Einaudi: I Giorni](https://open.spotify.com/track/6TCX42krn2Hq8vqCuEIkrh)
 ![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e02a946e7ca9ad7fb2e01656c74)
@@ -11,6 +11,9 @@ My monthly top tracks, updated on 1/28/2022, 12:59:16 AM
 
 ## [Adele: Set Fire to the Rain](https://open.spotify.com/track/3di5hcvxxciiqwMH1jarhY)
 ![Adele!](https://i.scdn.co/image/ab67616d00001e02fb7eedd9877b0c60597ef3e5)
+
+## [Floating Points: Movement 1](https://open.spotify.com/track/5mVNAL01dr6qjEWqwIMmmo)
+![Floating Points!](https://i.scdn.co/image/ab67616d00001e02fe532b7866bf15a43ab5fc8d)
 
 ## [Ludovico Einaudi: Melodia Africana III](https://open.spotify.com/track/2eqF9QgZ2r070ZizZwgNsX)
 ![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e02a946e7ca9ad7fb2e01656c74)
@@ -36,6 +39,9 @@ My monthly top tracks, updated on 1/28/2022, 12:59:16 AM
 ## [Ludovico Einaudi: Inizio](https://open.spotify.com/track/4Nirplvc90n5UhV27VjdSO)
 ![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e02a946e7ca9ad7fb2e01656c74)
 
+## [Cyan Kicks: Hurricane](https://open.spotify.com/track/5FJVPdR48WRCivDT7CXbYf)
+![Cyan Kicks!](https://i.scdn.co/image/ab67616d00001e0207dbf3af0848cdf22e9b8439)
+
 ## [Silvia Night: Congratulations](https://open.spotify.com/track/02wyaj5X9T90TGaM0NF6mo)
 ![Silvia Night!](https://i.scdn.co/image/ab67616d00001e02866c984f0f1da9fe18621aeb)
 
@@ -53,9 +59,3 @@ My monthly top tracks, updated on 1/28/2022, 12:59:16 AM
 
 ## [Citi Zēni: Eat Your Salad](https://open.spotify.com/track/0rNIEBlBuo5108lnHyGbqJ)
 ![Citi Zēni!](https://i.scdn.co/image/ab67616d00001e02971a2a8070bc4b92b757f9a0)
-
-## [Stefania: Last Dance](https://open.spotify.com/track/0x4GMUtMeZAbti9fhDQnhj)
-![Stefania!](https://i.scdn.co/image/ab67616d00001e02a540b05e2045e2205293f229)
-
-## [Ola Gjeilo: The Rose](https://open.spotify.com/track/1Asz0xznBL1uDU2eMZP2wR)
-![Ola Gjeilo!](https://i.scdn.co/image/ab67616d00001e02367d41b2dd5611697367d354)
