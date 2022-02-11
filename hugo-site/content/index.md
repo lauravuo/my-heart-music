@@ -1,19 +1,19 @@
-My monthly top tracks, updated on 2/4/2022, 12:58:34 AM
-
-## [Ludovico Einaudi: I Giorni](https://open.spotify.com/track/6TCX42krn2Hq8vqCuEIkrh)
-![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e02a946e7ca9ad7fb2e01656c74)
-
-## [Ultra Bra: Sokeana Hetkenä](https://open.spotify.com/track/1BkdIVGJna5UK2jO7Sbhoh)
-![Ultra Bra!](https://i.scdn.co/image/ab67616d00001e024dd7b2f5affc7050d6ac6f60)
-
-## [Adele: Someone Like You](https://open.spotify.com/track/3bNv3VuUOKgrf5hu3YcuRo)
-![Adele!](https://i.scdn.co/image/ab67616d00001e02fb7eedd9877b0c60597ef3e5)
+My monthly top tracks, updated on 2/11/2022, 1:06:25 AM
 
 ## [Adele: Set Fire to the Rain](https://open.spotify.com/track/3di5hcvxxciiqwMH1jarhY)
 ![Adele!](https://i.scdn.co/image/ab67616d00001e02fb7eedd9877b0c60597ef3e5)
 
+## [Ludovico Einaudi: I Giorni](https://open.spotify.com/track/6TCX42krn2Hq8vqCuEIkrh)
+![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e02a946e7ca9ad7fb2e01656c74)
+
+## [BEHM: Frida](https://open.spotify.com/track/2DnfYBSG1cEcEYieldgp2X)
+![BEHM!](https://i.scdn.co/image/ab67616d00001e020baccdb04adb47d94bf96c7e)
+
 ## [Floating Points: Movement 1](https://open.spotify.com/track/5mVNAL01dr6qjEWqwIMmmo)
 ![Floating Points!](https://i.scdn.co/image/ab67616d00001e02fe532b7866bf15a43ab5fc8d)
+
+## [Cyan Kicks: Hurricane](https://open.spotify.com/track/5FJVPdR48WRCivDT7CXbYf)
+![Cyan Kicks!](https://i.scdn.co/image/ab67616d00001e0207dbf3af0848cdf22e9b8439)
 
 ## [Ludovico Einaudi: Melodia Africana III](https://open.spotify.com/track/2eqF9QgZ2r070ZizZwgNsX)
 ![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e02a946e7ca9ad7fb2e01656c74)
@@ -21,14 +21,11 @@ My monthly top tracks, updated on 2/4/2022, 12:58:34 AM
 ## [Ludovico Einaudi: Samba](https://open.spotify.com/track/2yTqrlYnln6auf35o5i4Wt)
 ![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e02a946e7ca9ad7fb2e01656c74)
 
-## [Tananai: Esagerata](https://open.spotify.com/track/344nbd88SweQWTNghySBkr)
-![Tananai!](https://i.scdn.co/image/ab67616d00001e026f58944dc6cad3175ed921f6)
-
 ## [Ludovico Einaudi: Quel Che Resta](https://open.spotify.com/track/35w9lfyrtEKQ8HnA1i3uT2)
 ![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e02a946e7ca9ad7fb2e01656c74)
 
-## [Sanna Nielsen: Undo](https://open.spotify.com/track/3XhlY1x0LcIyHpZJB1g6WS)
-![Sanna Nielsen!](https://i.scdn.co/image/ab67616d00001e026895813820ad846d6bc19401)
+## [Valentina Monetta: Crisalide (Vola) - Original-ESC-Version](https://open.spotify.com/track/3CwS3gyTxTDx73pYii5pPs)
+![Valentina Monetta!](https://i.scdn.co/image/ab67616d00001e02cc570c218ff0b4114dbc0413)
 
 ## [Ludovico Einaudi: La Nascita Delle Cose Segrete](https://open.spotify.com/track/3nXCKdGO2Ub6kBlw50EFkS)
 ![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e02a946e7ca9ad7fb2e01656c74)
@@ -39,23 +36,26 @@ My monthly top tracks, updated on 2/4/2022, 12:58:34 AM
 ## [Ludovico Einaudi: Inizio](https://open.spotify.com/track/4Nirplvc90n5UhV27VjdSO)
 ![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e02a946e7ca9ad7fb2e01656c74)
 
-## [Cyan Kicks: Hurricane](https://open.spotify.com/track/5FJVPdR48WRCivDT7CXbYf)
-![Cyan Kicks!](https://i.scdn.co/image/ab67616d00001e0207dbf3af0848cdf22e9b8439)
+## [Siostry Szlachta: Drogowskazy](https://open.spotify.com/track/6VnDGhmz7Qw8xzziTD43hS)
+![Siostry Szlachta!](https://i.scdn.co/image/ab67616d00001e02f277b812834977ca1c03851e)
 
-## [Silvia Night: Congratulations](https://open.spotify.com/track/02wyaj5X9T90TGaM0NF6mo)
-![Silvia Night!](https://i.scdn.co/image/ab67616d00001e02866c984f0f1da9fe18621aeb)
-
-## [CASANOVA: Tutti](https://open.spotify.com/track/0LA1EZMkLVyafay8DQjS21)
-![CASANOVA!](https://i.scdn.co/image/ab67616d00001e026cbbaba5960e8ae83f8dbd58)
-
-## [Chanée & n'evergreen: In A Moment Like This](https://open.spotify.com/track/0MWW8RAML03zc4gjZqcxmL)
-![Chanée & n'evergreen!](https://i.scdn.co/image/ab67616d00001e0277641d04bf3b78a6db58b5d3)
+## [YOUNGHEARTED: Sun numero](https://open.spotify.com/track/2DfVvs2EZd82PvqOfdpJB4)
+![YOUNGHEARTED!](https://i.scdn.co/image/ab67616d00001e02a2c89f4a7d0f71801b52bd0a)
 
 ## [Ludovico Einaudi: I Giorni](https://open.spotify.com/track/0VLascXUZ2Ze2u5kUD5J1f)
 ![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e029d706d33e975dfa107e11b1e)
 
-## [Jade Ewen: It's My Time - Radio Edit](https://open.spotify.com/track/0q1PTDRFl64tIskcoIs2EO)
-![Jade Ewen!](https://i.scdn.co/image/ab67616d00001e026fb6c48d42ad1aafdc9c8128)
+## [Samra: Miracle - Eurovision 2016](https://open.spotify.com/track/0etFNuOi2EMWBCE9EHJg11)
+![Samra!](https://i.scdn.co/image/ab67616d00001e0231aa467417cd1986b0930af2)
 
 ## [Citi Zēni: Eat Your Salad](https://open.spotify.com/track/0rNIEBlBuo5108lnHyGbqJ)
 ![Citi Zēni!](https://i.scdn.co/image/ab67616d00001e02971a2a8070bc4b92b757f9a0)
+
+## [Kati Wolf: What about my dreams? - Eurovision Edit (Hunglish)](https://open.spotify.com/track/0wRtmHyLpJJH5SHEC2H5Ji)
+![Kati Wolf!](https://i.scdn.co/image/ab67616d00001e0299e725ed75838bcf22df9cf6)
+
+## [Ultra Bra: Sokeana Hetkenä](https://open.spotify.com/track/1BkdIVGJna5UK2jO7Sbhoh)
+![Ultra Bra!](https://i.scdn.co/image/ab67616d00001e024dd7b2f5affc7050d6ac6f60)
+
+## [Ludovico Einaudi: Melodia Africana I](https://open.spotify.com/track/1hKrn2aQLjhIKX5FZ7ulNP)
+![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e02a946e7ca9ad7fb2e01656c74)
