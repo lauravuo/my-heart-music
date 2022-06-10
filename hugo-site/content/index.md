@@ -1,61 +1,61 @@
-My monthly top tracks, updated on 6/3/2022, 1:26:06 AM
+My monthly top tracks, updated on 6/10/2022, 1:48:51 AM
 
-## [Subwoolfer: Give That Wolf A Banana](https://open.spotify.com/track/50Cf2eYv8zT3v2HAkwhIiL)
-![Subwoolfer!](https://i.scdn.co/image/ab67616d00001e0212dfdff3261a2053f34f0dcc)
+## [ABREU: Kaikki paitsi sydän](https://open.spotify.com/track/74efghIFJsznqDh0pHDZg4)
+![ABREU!](https://i.scdn.co/image/ab67616d00001e028dcc73aa16e385702a010323)
+
+## [Knipi: Huomasin vain sinut](https://open.spotify.com/track/6qU0FnPmwvfW43Ke1UMdk2)
+![Knipi!](https://i.scdn.co/image/ab67616d00001e02716ffd7bebaa6e14eb193fd1)
+
+## [Elastinen: Hetken tässä kaikes on järkee (feat. Johanna Kurkela)](https://open.spotify.com/track/3izHyYiROshTbHH9hCRQya)
+![Elastinen!](https://i.scdn.co/image/ab67616d00001e021148fb3579cba541dafa401d)
+
+## [ABREU: Huuliharppu (Antonio) [Vain elämää kausi 12]](https://open.spotify.com/track/5HBo7k1XiCzJ7RY9LcZWkD)
+![ABREU!](https://i.scdn.co/image/ab67616d00001e0234017f2a4e73a9d6311f005b)
+
+## [Aukusti Koivisto: Uuteen valoon](https://open.spotify.com/track/2MUS8HJdnyNfdXzSY8jP6u)
+![Aukusti Koivisto!](https://i.scdn.co/image/ab67616d00001e02234f641ed49228953404113f)
+
+## [Vilma Alina: Usko toivo rakkaus](https://open.spotify.com/track/3BK9rE2G4blj5eycm1CvrF)
+![Vilma Alina!](https://i.scdn.co/image/ab67616d00001e02ff8cc3f1415c1598b181fb88)
+
+## [Katri Ylander: Täydellinen mulle](https://open.spotify.com/track/3HSw4IhTp0IN5ySyfXkHTk)
+![Katri Ylander!](https://i.scdn.co/image/ab67616d00001e023987fe809b5fe8bca91c6d03)
+
+## [Hanna Pakarinen: Vuoretkin murtuu](https://open.spotify.com/track/3PXtJl7rYCuRYt1dCeOua3)
+![Hanna Pakarinen!](https://i.scdn.co/image/ab67616d00001e0292e85b963851b5dd3060cc8a)
+
+## [Aleksanteri Hakaniemi: Märkää maalia](https://open.spotify.com/track/4Nh6XQGn5Dg8xhTw1fQ7RP)
+![Aleksanteri Hakaniemi!](https://i.scdn.co/image/ab67616d00001e0239d2b77592a416b82d89c690)
+
+## [Mira Luoti: Täydellinen puolikas (feat. Aki Tykki)](https://open.spotify.com/track/5OBdVrrySzMXsVzmbGNmC2)
+![Mira Luoti!](https://i.scdn.co/image/ab67616d00001e02537f035f0de23fbdb4b80d92)
+
+## [BEHM: Ethän tarkoittanut sitä](https://open.spotify.com/track/5dtblyaDrGQxEeYW9Iv51z)
+![BEHM!](https://i.scdn.co/image/ab67616d00001e026d58cf0ba1131e3ac4982b21)
+
+## [J. Karjalainen: Oulu, Wisconsin](https://open.spotify.com/track/5sH2VQdDS7TSK634N4ACCT)
+![J. Karjalainen!](https://i.scdn.co/image/ab67616d00001e02bc1c70af64c5e948a08cb239)
+
+## [Teleks: Juju](https://open.spotify.com/track/6Xb4iYQIAfIDOlxbMBxcNL)
+![Teleks!](https://i.scdn.co/image/ab67616d00001e025499ed9cf9616c26172237a8)
+
+## [Jannika B: Mania](https://open.spotify.com/track/7CxVS4qw9jt8BniDyvGsJc)
+![Jannika B!](https://i.scdn.co/image/ab67616d00001e02a99d3edcea0161655643677e)
+
+## [Johnny Nash: I Can See Clearly Now - Edit](https://open.spotify.com/track/0DcrhZ12WcCqruCs8ibXSf)
+![Johnny Nash!](https://i.scdn.co/image/ab67616d00001e02702689066bc17ee67203c2bc)
 
 ## [Ludovico Einaudi: I Giorni](https://open.spotify.com/track/0VLascXUZ2Ze2u5kUD5J1f)
 ![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e029d706d33e975dfa107e11b1e)
 
-## [Can-Linn: Heartbeat (feat. Kasey Smith)](https://open.spotify.com/track/21TVVieJgMwi6YwUTLEMsy)
-![Can-Linn!](https://i.scdn.co/image/ab67616d00001e0281adb93fdc135c2fa9c5a226)
+## [Mariska: Piste](https://open.spotify.com/track/12eO1SOrwGkCgkgU9bxVtC)
+![Mariska!](https://i.scdn.co/image/ab67616d00001e0239136697f7701de5090e0923)
 
-## [Amaury Vassili: Sognu](https://open.spotify.com/track/3ZMFGLy09TWcbWgLJjaKEz)
-![Amaury Vassili!](https://i.scdn.co/image/ab67616d00001e020775488c123b12f58c837739)
+## [Samu Haber: Sä](https://open.spotify.com/track/1Er0WMLrT8aMgAZVgXnT6Z)
+![Samu Haber!](https://i.scdn.co/image/ab67616d00001e020db133af8726f2d83cfb6b54)
 
-## [Ludovico Einaudi: Low Mist - Day 1](https://open.spotify.com/track/4d0g4Lp1OvUpZHTq42pIHk)
-![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e021abc551339f54b9d30b058b9)
+## [Titta: Ihana mies](https://open.spotify.com/track/1JuNanMDR8N94nicMCbusE)
+![Titta!](https://i.scdn.co/image/ab67616d00001e02cfdd32ece1254508b0ca1e05)
 
-## [Nightwish: How's the Heart?](https://open.spotify.com/track/6lkVbijlh932FSS2I0gDrR)
-![Nightwish!](https://i.scdn.co/image/ab67616d00001e024fadb2c3b4790efd1ed1e369)
-
-## [Nightwish: Élan](https://open.spotify.com/track/6mUJRMe2bZdn8EOnBzKeix)
-![Nightwish!](https://i.scdn.co/image/ab67616d00001e02a1a12280d92121d1c7e4ceda)
-
-## [Regina: Bistra voda](https://open.spotify.com/track/72pPz0QL8HncjUkgFJguHb)
-![Regina!](https://i.scdn.co/image/ab67616d00001e0216c5e4949653c3ebfa719d88)
-
-## [Sheldon Riley: Not The Same](https://open.spotify.com/track/27ThQIsofXro6xEz3SzQWi)
-![Sheldon Riley!](https://i.scdn.co/image/ab67616d00001e02111ab8764f998a23cdd99a21)
-
-## [Ludovico Einaudi: Low Mist Var. 1 - Day 1](https://open.spotify.com/track/5CvZb3W86SwbJo19i20CqZ)
-![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e02940a1931de313e942aace803)
-
-## [The Rasmus: Jezebel](https://open.spotify.com/track/2NehRqeFiEGV72lFfqJGUn)
-![The Rasmus!](https://i.scdn.co/image/ab67616d00001e02ff1e8ec1f5d85806d892888b)
-
-## [KALUSH: Stefania (Kalush Orchestra)](https://open.spotify.com/track/2vHzOWRKYPLu8umRPIFuOq)
-![KALUSH!](https://i.scdn.co/image/ab67616d00001e029e9968776683d0a7099e2930)
-
-## [wrs: Llámame](https://open.spotify.com/track/3n9qn38IhqkC7DcdIRaM9q)
-![wrs!](https://i.scdn.co/image/ab67616d00001e0206736dc2eaaa73e41a5a7271)
-
-## [Circus Mircus: Lock Me In](https://open.spotify.com/track/7ed3JsAPk6u0NjRhylnKmY)
-![Circus Mircus!](https://i.scdn.co/image/ab67616d00001e02bdd287185e62f52af5cde3d1)
-
-## [Mia Dimšić: Guilty Pleasure](https://open.spotify.com/track/0er8krd7cEtPxVEEv0ZEHi)
-![Mia Dimšić!](https://i.scdn.co/image/ab67616d00001e02d80a8e8cc95b2bfe8cff7e71)
-
-## [Citi Zēni: Eat Your Salad](https://open.spotify.com/track/0rNIEBlBuo5108lnHyGbqJ)
-![Citi Zēni!](https://i.scdn.co/image/ab67616d00001e02926139bc5d857604559390c0)
-
-## [VICTORIA: Tears Getting Sober](https://open.spotify.com/track/3kmCuZAff2sc7KIm2OPG1z)
-![VICTORIA!](https://i.scdn.co/image/ab67616d00001e02777d6e99f863241be0dd7dd0)
-
-## [Safura: Drip Drop](https://open.spotify.com/track/0ADbA5DLDG7tvZayG26g9B)
-![Safura!](https://i.scdn.co/image/ab67616d00001e02774c4dc2ebe9af5a85c5950d)
-
-## [Pauline Chagne: Nuit Pauline (Radio Edit)](https://open.spotify.com/track/0EDYchsw6BQaz3Ty9fmN4f)
-![Pauline Chagne!](https://i.scdn.co/image/ab67616d00001e0204ac4e1b699bd23cf25ff1c9)
-
-## [DoReDoS: My Lucky Day](https://open.spotify.com/track/0ThWw4Mty8Sb0mzaXyFvt8)
-![DoReDoS!](https://i.scdn.co/image/ab67616d00001e02b94d4d14229910e4b71c0d62)
+## [Haloo Helsinki!: Pelikaani](https://open.spotify.com/track/29B7useM6iMR6PFnNJfJTn)
+![Haloo Helsinki!!](https://i.scdn.co/image/ab67616d00001e02fde41218044bf0850272e94c)
