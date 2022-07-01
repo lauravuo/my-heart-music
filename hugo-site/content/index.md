@@ -1,7 +1,10 @@
-My monthly top tracks, updated on 6/24/2022, 1:49:16 AM
+My monthly top tracks, updated on 7/1/2022, 2:04:29 AM
 
 ## [Knipi: Huomasin vain sinut](https://open.spotify.com/track/6qU0FnPmwvfW43Ke1UMdk2)
 ![Knipi!](https://i.scdn.co/image/ab67616d00001e02716ffd7bebaa6e14eb193fd1)
+
+## [Ultra Bra: Haikara](https://open.spotify.com/track/6iAT2Nr9GXAjyBDlGYstGA)
+![Ultra Bra!](https://i.scdn.co/image/ab67616d00001e02a9217fe9396c0dcced12efd3)
 
 ## [ABREU: Kaikki paitsi sydän](https://open.spotify.com/track/74efghIFJsznqDh0pHDZg4)
 ![ABREU!](https://i.scdn.co/image/ab67616d00001e028dcc73aa16e385702a010323)
@@ -21,41 +24,38 @@ My monthly top tracks, updated on 6/24/2022, 1:49:16 AM
 ## [Ylva Haru: Matkalla itseeni](https://open.spotify.com/track/5arWIfjcv6GUIrkoiW6Qxm)
 ![Ylva Haru!](https://i.scdn.co/image/ab67616d00001e0221f75852e312095091feb31a)
 
-## [Scandinavian Music Group: Ikuinen ystävä](https://open.spotify.com/track/7Id2n7JbX9mY1xbTSuu06y)
-![Scandinavian Music Group!](https://i.scdn.co/image/ab67616d00001e024e1e3b163ea0bb3eb7fc5e85)
-
-## [Aukusti Koivisto: Uuteen valoon](https://open.spotify.com/track/2MUS8HJdnyNfdXzSY8jP6u)
-![Aukusti Koivisto!](https://i.scdn.co/image/ab67616d00001e02234f641ed49228953404113f)
-
 ## [Vesala: Uu mama](https://open.spotify.com/track/4gfaPfCrW3lM4FpGeLyORb)
 ![Vesala!](https://i.scdn.co/image/ab67616d00001e02ebe92939dcbccd47afafe7e7)
 
 ## [BESS: Ram pam pam](https://open.spotify.com/track/55qPuI6NekVyNPM6kh5DN4)
 ![BESS!](https://i.scdn.co/image/ab67616d00001e023df4c039599e87ba78203d41)
 
+## [Aukusti Koivisto: Uuteen valoon](https://open.spotify.com/track/2MUS8HJdnyNfdXzSY8jP6u)
+![Aukusti Koivisto!](https://i.scdn.co/image/ab67616d00001e02234f641ed49228953404113f)
+
+## [Johnny Nash: I Can See Clearly Now - Edit](https://open.spotify.com/track/0DcrhZ12WcCqruCs8ibXSf)
+![Johnny Nash!](https://i.scdn.co/image/ab67616d00001e02702689066bc17ee67203c2bc)
+
 ## [Portion Boys: Kyläbaari](https://open.spotify.com/track/0QO1QnI4tOXLwtgXQmVqPA)
 ![Portion Boys!](https://i.scdn.co/image/ab67616d00001e026dd2b3eaa2447576841020f3)
 
-## [Morcheeba: Rome Wasn't Built in a Day](https://open.spotify.com/track/6lsumzVFKP9SnfKcuGwqVp)
-![Morcheeba!](https://i.scdn.co/image/ab67616d00001e02b7b9e596d4836113a4b2d8ed)
+## [Erika Vikman: Cicciolina](https://open.spotify.com/track/1BrCg5ZARTc16Y8jg8yZvg)
+![Erika Vikman!](https://i.scdn.co/image/ab67616d00001e02b4a7e2a8263820ca4c7382e1)
 
-## [Ultra Bra: Tylsää, tylsää](https://open.spotify.com/track/7GQ1quBWpmEbH6t1oAYF6C)
-![Ultra Bra!](https://i.scdn.co/image/ab67616d00001e024dd7b2f5affc7050d6ac6f60)
+## [Gioachino Rossini: Il barbiere di Siviglia: Overture (Sinfonia)](https://open.spotify.com/track/1chTrqszWQEOP4RsNuOZf7)
+![Gioachino Rossini!](https://i.scdn.co/image/ab67616d00001e028e391c9555988a768b17e66c)
 
-## [ABREU: Huuliharppu (Antonio) [Vain elämää kausi 12]](https://open.spotify.com/track/5HBo7k1XiCzJ7RY9LcZWkD)
-![ABREU!](https://i.scdn.co/image/ab67616d00001e0234017f2a4e73a9d6311f005b)
+## [Scandinavian Music Group: Tahdon uudet silmät](https://open.spotify.com/track/1tusMz1yphsnMz7RmZLcDF)
+![Scandinavian Music Group!](https://i.scdn.co/image/ab67616d00001e026016026c5faf37a49193e454)
 
-## [Olli Halonen: Suomen kesä](https://open.spotify.com/track/67A13FUQH1vp3jmjwJKsA5)
-![Olli Halonen!](https://i.scdn.co/image/ab67616d00001e0211a441eb6c885b087ba8fe8b)
+## [Poju: Esson baariin](https://open.spotify.com/track/2SNZVqgDiiuOUe2qPOW1m1)
+![Poju!](https://i.scdn.co/image/ab67616d00001e02f24a53cf00a1ed918854c3e2)
 
-## [Vilma Alina: Usko toivo rakkaus](https://open.spotify.com/track/3BK9rE2G4blj5eycm1CvrF)
-![Vilma Alina!](https://i.scdn.co/image/ab67616d00001e02ff8cc3f1415c1598b181fb88)
+## [ABREU: 20 Ave Mariaa](https://open.spotify.com/track/2SREBxoqvxhB0wQHgLeNVI)
+![ABREU!](https://i.scdn.co/image/ab67616d00001e024c3dd202d840c41b77b916da)
 
-## [Katri Ylander: Täydellinen mulle](https://open.spotify.com/track/3HSw4IhTp0IN5ySyfXkHTk)
-![Katri Ylander!](https://i.scdn.co/image/ab67616d00001e023987fe809b5fe8bca91c6d03)
+## [Ludovico Einaudi: Nuvole Bianche](https://open.spotify.com/track/3weNRklVDqb4Rr5MhKBR3D)
+![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e02c0c021c0ac135d923b3a0ddc)
 
-## [Hanna Pakarinen: Vuoretkin murtuu](https://open.spotify.com/track/3PXtJl7rYCuRYt1dCeOua3)
-![Hanna Pakarinen!](https://i.scdn.co/image/ab67616d00001e0292e85b963851b5dd3060cc8a)
-
-## [Aleksanteri Hakaniemi: Märkää maalia](https://open.spotify.com/track/4Nh6XQGn5Dg8xhTw1fQ7RP)
-![Aleksanteri Hakaniemi!](https://i.scdn.co/image/ab67616d00001e0239d2b77592a416b82d89c690)
+## [Norah Jones: Flipside](https://open.spotify.com/track/5Ps9XMq4PDMDCNnp4JfYiI)
+![Norah Jones!](https://i.scdn.co/image/ab67616d00001e025843cb50b0751124f3e34e6e)
