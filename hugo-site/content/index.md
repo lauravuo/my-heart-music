@@ -1,13 +1,7 @@
-My monthly top tracks, updated on 7/22/2022, 1:58:52 AM
-
-## [Gioachino Rossini: Il barbiere di Siviglia: Overture (Sinfonia)](https://open.spotify.com/track/1chTrqszWQEOP4RsNuOZf7)
-![Gioachino Rossini!](https://i.scdn.co/image/ab67616d00001e028e391c9555988a768b17e66c)
+My monthly top tracks, updated on 7/29/2022, 2:03:10 AM
 
 ## [Maija Vilkkumaa: Teini](https://open.spotify.com/track/4Mqd4bOLoy6xmfojDuCd5n)
 ![Maija Vilkkumaa!](https://i.scdn.co/image/ab67616d00001e028a1a59ab62ac17298f88d263)
-
-## [Clarence Carter: Getting the Bills (But No Merchandise)](https://open.spotify.com/track/4QYhfBpff46N5EwVQSL7Fw)
-![Clarence Carter!](https://i.scdn.co/image/ab67616d00001e02af76314495cce70a05ce4b51)
 
 ## [Pekko Käppi: Löyly](https://open.spotify.com/track/51eOp6xG2ZRVei7x8TPVdD)
 ![Pekko Käppi!](https://i.scdn.co/image/ab67616d00001e02655762d92b215d0447334913)
@@ -15,26 +9,14 @@ My monthly top tracks, updated on 7/22/2022, 1:58:52 AM
 ## [Hania Rani: Eden](https://open.spotify.com/track/6Yy3QRfT2WsUXrdplVdt4h)
 ![Hania Rani!](https://i.scdn.co/image/ab67616d00001e025fe48620b3d6c19bc445679b)
 
-## [Jenni Vartiainen: Muistan kirkkauden](https://open.spotify.com/track/6aFm8mhewZyhoZvNo5zexO)
-![Jenni Vartiainen!](https://i.scdn.co/image/ab67616d00001e02f688f1298c80f894599d0220)
-
 ## [Mikko Kuustonen: Aurora](https://open.spotify.com/track/0QAcb5WtGtlbBK5p5yllvm)
 ![Mikko Kuustonen!](https://i.scdn.co/image/ab67616d00001e0246566e3639b9f411a9619d99)
 
-## [Mariska: Minä liityin sinuun](https://open.spotify.com/track/3KXMfn5125nGdHRiEyhdrw)
-![Mariska!](https://i.scdn.co/image/ab67616d00001e02e3dc94033af34954b1aa9634)
+## [Queen: Radio Ga Ga - Remastered 2011](https://open.spotify.com/track/1nQRg9q9uwALGzouOX5OyQ)
+![Queen!](https://i.scdn.co/image/ab67616d00001e025be5f807f6f0549e198a44b4)
 
-## [Maija Vilkkumaa: 1973](https://open.spotify.com/track/4fwFoTjIquFrR6boF8vtdq)
-![Maija Vilkkumaa!](https://i.scdn.co/image/ab67616d00001e02e20f6a7f24b15dfb8d170d52)
-
-## [S10: De Diepte](https://open.spotify.com/track/7uQ7e7nzbtyX87eIYHpj6Z)
-![S10!](https://i.scdn.co/image/ab67616d00001e02518255a11ce96cc8de864f39)
-
-## [Carl Maria von Weber: Jubel-Overture, Op. 59, J. 245](https://open.spotify.com/track/03LV7Bmbs0ERjNoeogf1Bx)
-![Carl Maria von Weber!](https://i.scdn.co/image/ab67616d00001e023db4f721f9bddcb573ad1ce2)
-
-## [Johnny Nash: I Can See Clearly Now - Edit](https://open.spotify.com/track/0DcrhZ12WcCqruCs8ibXSf)
-![Johnny Nash!](https://i.scdn.co/image/ab67616d00001e02702689066bc17ee67203c2bc)
+## [Jenni Vartiainen: Muistan kirkkauden](https://open.spotify.com/track/6aFm8mhewZyhoZvNo5zexO)
+![Jenni Vartiainen!](https://i.scdn.co/image/ab67616d00001e02f688f1298c80f894599d0220)
 
 ## [Stevie Wonder: Part-Time Lover](https://open.spotify.com/track/0Dm43YLUlGdePpSbI1ct8h)
 ![Stevie Wonder!](https://i.scdn.co/image/ab67616d00001e02ed0ddbe4b2590f448e9845be)
@@ -45,17 +27,35 @@ My monthly top tracks, updated on 7/22/2022, 1:58:52 AM
 ## [Grzegorz Ciechowski: Telefony - Remastered 2021](https://open.spotify.com/track/0MoyV9SsMNWk8TUfeV7aoO)
 ![Grzegorz Ciechowski!](https://i.scdn.co/image/ab67616d00001e02a471de3eaefe0727cd6218d2)
 
-## [Jan A.P. Kaczmarek: War and Peace - Main Title](https://open.spotify.com/track/0PTVlMVjdRp3DRo8oWdrvD)
-![Jan A.P. Kaczmarek!](https://i.scdn.co/image/ab67616d00001e02c7258c971b9b349cd0591c48)
-
-## [Fritz Kreisler: Syncopation](https://open.spotify.com/track/0SfzxFvXJwpFCI2yH68Z1W)
-![Fritz Kreisler!](https://i.scdn.co/image/ab67616d00001e02f779fa6c92239c26035a9930)
-
 ## [Pispalan Sälli: Rajaportin saunassa](https://open.spotify.com/track/0U5PgFcIkbiTgCrMaDwysX)
 ![Pispalan Sälli!](https://i.scdn.co/image/ab67616d00001e02655762d92b215d0447334913)
 
-## [Durand Jones & The Indications: Young Americans](https://open.spotify.com/track/0W8Wi9I18Zre494jQDxLYe)
-![Durand Jones & The Indications!](https://i.scdn.co/image/ab67616d00001e02a3f732b799e3f9078d9e6da6)
-
 ## [Adele: River Lea](https://open.spotify.com/track/0bqC0AqaBZKBZsjhI3y2OW)
 ![Adele!](https://i.scdn.co/image/ab67616d00001e02f1ea3305aa003425dda05882)
+
+## [Tomi Markkola: Ilman sua](https://open.spotify.com/track/0cCMtosPZlrOUtGHB6kd47)
+![Tomi Markkola!](https://i.scdn.co/image/ab67616d00001e02885dce60ff7810c9ebc83044)
+
+## [BEHM: Lupaan (feat. Rajaton)](https://open.spotify.com/track/0dnzdfbHsC4ITKhcp9FM0x)
+![BEHM!](https://i.scdn.co/image/ab67616d00001e0232ec0ef07e57d19a25ecbc93)
+
+## [Matti Johannes Koivu: Sano joku sana](https://open.spotify.com/track/0jCBIgVWy5suHC3dOukz45)
+![Matti Johannes Koivu!](https://i.scdn.co/image/ab67616d00001e0226898076d89312b46cc45fdd)
+
+## [Poblecat: Camisa Blanca - Pills Version](https://open.spotify.com/track/0tMn1uQxeN5CnqVu1GQGYs)
+![Poblecat!](https://i.scdn.co/image/ab67616d00001e02242edb262956d3fd0c559713)
+
+## [Poets of the Fall: Requiem for My Harlequin - Radio Edit](https://open.spotify.com/track/1AZfDPVtcl6MmQFhKurIqY)
+![Poets of the Fall!](https://i.scdn.co/image/ab67616d00001e026a3f749041bb46b9ff67c934)
+
+## [Ultra Bra: Sokeana Hetkenä](https://open.spotify.com/track/1BkdIVGJna5UK2jO7Sbhoh)
+![Ultra Bra!](https://i.scdn.co/image/ab67616d00001e024dd7b2f5affc7050d6ac6f60)
+
+## [Titta: Ihana mies](https://open.spotify.com/track/1JuNanMDR8N94nicMCbusE)
+![Titta!](https://i.scdn.co/image/ab67616d00001e02cfdd32ece1254508b0ca1e05)
+
+## [Erin: Päivii niit](https://open.spotify.com/track/1L3uBhszs0UbS5WikRyHp6)
+![Erin!](https://i.scdn.co/image/ab67616d00001e02f6ba2696fae0a46d575e1cb2)
+
+## [Otis Redding: Fa-Fa-Fa-Fa-Fa (Sad Song)](https://open.spotify.com/track/1LIM0zOPitSNpUIU8H1BNQ)
+![Otis Redding!](https://i.scdn.co/image/ab67616d00001e02ffffe932598090498459b77c)
