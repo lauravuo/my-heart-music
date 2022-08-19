@@ -1,4 +1,4 @@
-My monthly top tracks, updated on 8/12/2022, 1:50:34 AM
+My monthly top tracks, updated on 8/19/2022, 2:00:10 AM
 
 ## [Randy: 23 (With Ape Drums)](https://open.spotify.com/track/4vv8wcnT04GHHbUCFBAiHF)
 ![Randy!](https://i.scdn.co/image/ab67616d00001e02c3945a01c484246354b96966)
@@ -18,11 +18,17 @@ My monthly top tracks, updated on 8/12/2022, 1:50:34 AM
 ## [Rasmus Seebach: De Værste Bedste År](https://open.spotify.com/track/0PY9hOWY4UFzXOOAjuujTJ)
 ![Rasmus Seebach!](https://i.scdn.co/image/ab67616d00001e027bded29598acbe1e2f4b4437)
 
+## [Scandinavian Music Group: Tahdon uudet silmät](https://open.spotify.com/track/1tusMz1yphsnMz7RmZLcDF)
+![Scandinavian Music Group!](https://i.scdn.co/image/ab67616d00001e026016026c5faf37a49193e454)
+
 ## [Lyyti: Ei pahalla](https://open.spotify.com/track/2ySW6GHpalowh59cGDAeo9)
 ![Lyyti!](https://i.scdn.co/image/ab67616d00001e02743cb52dd926faedec58221f)
 
 ## [Blessd: Medallo](https://open.spotify.com/track/6lX6l7OuA3qrnIRfdsr0dw)
 ![Blessd!](https://i.scdn.co/image/ab67616d00001e020a0ee97e8ba4373476538f19)
+
+## [ABBA: Eagle](https://open.spotify.com/track/03BqDZmqex6IzC6Mxw8m2o)
+![ABBA!](https://i.scdn.co/image/ab67616d00001e02ec5de82891e542d4877c6d98)
 
 ## [Kevin Lyttle: Turn Me On](https://open.spotify.com/track/0BBOLOV5JntPL3341swIre)
 ![Kevin Lyttle!](https://i.scdn.co/image/ab67616d00001e0273b8d34fa1ece5bb3cbf6bfb)
@@ -42,20 +48,14 @@ My monthly top tracks, updated on 8/12/2022, 1:50:34 AM
 ## [DJ Snake: Let Me Love You](https://open.spotify.com/track/0lYBSQXN6rCTvUZvg9S0lU)
 ![DJ Snake!](https://i.scdn.co/image/ab67616d00001e02212d776c31027c511f0ee3bc)
 
+## [Kaija Koo: Surulapsi](https://open.spotify.com/track/0nYt9DbjrhbFHAmtgOoF9X)
+![Kaija Koo!](https://i.scdn.co/image/ab67616d00001e02d9574b788034fd5f2ddc5c94)
+
 ## [Guillaume Dufay: Lauda Sion (Sequence)](https://open.spotify.com/track/16E5oqvPfF9xyJRz5lT7X7)
 ![Guillaume Dufay!](https://i.scdn.co/image/ab67616d00001e02549be5830e231ff13cd96c43)
 
+## [Vesa-Matti Loiri: Kun muistelen](https://open.spotify.com/track/1A3cE0bEazwKyO0u4pgIij)
+![Vesa-Matti Loiri!](https://i.scdn.co/image/ab67616d00001e024db834901a2841404ec75663)
+
 ## [Matti Johannes Koivu: Arvailen taivaan nimeä](https://open.spotify.com/track/1C0KcGcW3gYW6gHF5Zolna)
 ![Matti Johannes Koivu!](https://i.scdn.co/image/ab67616d00001e02ce8787b4a779ecdac00b0f33)
-
-## [Bad Bunny: Tití Me Preguntó](https://open.spotify.com/track/1IHWl5LamUGEuP4ozKQSXZ)
-![Bad Bunny!](https://i.scdn.co/image/ab67616d00001e0249d694203245f241a1bcaa72)
-
-## [Vesta: Ei tunteilla](https://open.spotify.com/track/1Qe9GhMp9BvntmBlcSBkp3)
-![Vesta!](https://i.scdn.co/image/ab67616d00001e025da0c7ebfb201008d6f110bc)
-
-## [Beyoncé: If I Were a Boy](https://open.spotify.com/track/1oQZk2bKBLgP1cbuFKvjkq)
-![Beyoncé!](https://i.scdn.co/image/ab67616d00001e02b4c5982e1b92f97a126fc18c)
-
-## [Jerry Di: BAD DECISIONS](https://open.spotify.com/track/1xFXjL0NUUXm4XnWGbqCMl)
-![Jerry Di!](https://i.scdn.co/image/ab67616d00001e02176e5a8239f84ee43b515715)
