@@ -1,61 +1,61 @@
-My monthly top tracks, updated on 9/9/2022, 2:19:39 AM
+My monthly top tracks, updated on 9/16/2022, 2:25:21 AM
+
+## [Amy Macdonald: Slow It Down](https://open.spotify.com/track/0bD3uuyVPF1AVTXZTXBw4R)
+![Amy Macdonald!](https://i.scdn.co/image/ab67616d00001e02c62d37a90077ccef150245e4)
 
 ## [Kaija Koo: Mun sydän](https://open.spotify.com/track/37E6rUPdexxkqw63sqVLKB)
 ![Kaija Koo!](https://i.scdn.co/image/ab67616d00001e026fe938e6a577215b37ca2fef)
 
-## [Scandinavian Music Group: Uniemme takaa](https://open.spotify.com/track/1m18EA62POZUBgYk82uHqH)
-![Scandinavian Music Group!](https://i.scdn.co/image/ab67616d00001e020e37ee3656cb60bc7a6df9d7)
-
-## [Chanel: SloMo](https://open.spotify.com/track/3XREkzDHsWdBL5tybyCDBH)
-![Chanel!](https://i.scdn.co/image/ab67616d00001e02e72e1154ce7b6314ba087b0e)
-
-## [Beyoncé: Halo](https://open.spotify.com/track/4JehYebiI9JE8sR8MisGVb)
-![Beyoncé!](https://i.scdn.co/image/ab67616d00001e02801c4d205accdba0a468a10b)
-
-## [Mikko Alatalo: Jos sä menet lappiin, älä anna muille](https://open.spotify.com/track/0k7HznMDPqmYvSlRVIgTAC)
-![Mikko Alatalo!](https://i.scdn.co/image/ab67616d00001e029f55d3e6f13a3de6d03d6df0)
-
-## [Janet Jackson: Together Again](https://open.spotify.com/track/1GrikfH0jDejDvrxo84n4P)
-![Janet Jackson!](https://i.scdn.co/image/ab67616d00001e02ea84373a962d15eeed9aa3bf)
-
-## [Donna Summer: She Works Hard For The Money](https://open.spotify.com/track/3FlOciKDqFlTMPeC7t92Qy)
-![Donna Summer!](https://i.scdn.co/image/ab67616d00001e02b33c99d166f15236efd104e6)
-
 ## [Chisu: Mysteeri](https://open.spotify.com/track/3TuGB6jBic0W7LqCn8aATK)
 ![Chisu!](https://i.scdn.co/image/ab67616d00001e02692eaa84f8910b5de04c50cd)
 
-## [Arppa: Paha meno Pengerkadulla](https://open.spotify.com/track/3bevgUSWRMR9VRhemYCkVr)
-![Arppa!](https://i.scdn.co/image/ab67616d00001e0257cbbf54289face53c752eef)
+## [Olavi Uusivirta: Ollaanko tämä kesä näin?](https://open.spotify.com/track/45W3OW8VgBNjb8lOpPXWeT)
+![Olavi Uusivirta!](https://i.scdn.co/image/ab67616d00001e0226f014ba6bb32c276359893e)
+
+## [DJ Ibusal: Pilalla](https://open.spotify.com/track/5MIA2gOm37P775xTpWPFSy)
+![DJ Ibusal!](https://i.scdn.co/image/ab67616d00001e023285e87fb6c71529a5153cc8)
 
 ## [Bad Bunny: La Zona](https://open.spotify.com/track/5kqNIqFjijuzvVLhuY9B8j)
 ![Bad Bunny!](https://i.scdn.co/image/ab67616d00001e02548f7ec52da7313de0c5e4a0)
 
-## [Chisu: Mun kulta](https://open.spotify.com/track/4bCFx1oB7Zee9UWt2cgNbJ)
-![Chisu!](https://i.scdn.co/image/ab67616d00001e02e39cbf965e205809412f4e8a)
+## [Scandinavian Music Group: Uniemme takaa](https://open.spotify.com/track/1m18EA62POZUBgYk82uHqH)
+![Scandinavian Music Group!](https://i.scdn.co/image/ab67616d00001e020e37ee3656cb60bc7a6df9d7)
 
 ## [Litku Klemetti: Jääkuningatar](https://open.spotify.com/track/2lB15LfZER8op4ixZdWgaV)
 ![Litku Klemetti!](https://i.scdn.co/image/ab67616d00001e022229ac44e92fe380232c5710)
 
-## [ABREU: Sytyn](https://open.spotify.com/track/0bup6XzvVJUL8wKUI0P1AP)
-![ABREU!](https://i.scdn.co/image/ab67616d00001e023a24aabe6c5e241d13c97f8f)
+## [Chisu: Mun kulta](https://open.spotify.com/track/4bCFx1oB7Zee9UWt2cgNbJ)
+![Chisu!](https://i.scdn.co/image/ab67616d00001e02e39cbf965e205809412f4e8a)
 
-## [Tamara Lund: Lapin tango](https://open.spotify.com/track/0mQY1NPLadj31Q6lNLQOy6)
-![Tamara Lund!](https://i.scdn.co/image/ab67616d00001e0296f3a9b20f17760c9157ae49)
+## [Ami Aspelund: Fantasiaa](https://open.spotify.com/track/0LlNVRG3DsJNHBKZHuJ4tC)
+![Ami Aspelund!](https://i.scdn.co/image/ab67616d00001e02392bf1ea9af41c71e8f2dfb8)
 
-## [BEHM: Frida](https://open.spotify.com/track/2DnfYBSG1cEcEYieldgp2X)
-![BEHM!](https://i.scdn.co/image/ab67616d00001e020baccdb04adb47d94bf96c7e)
+## [Rauw Alejandro: Enchule](https://open.spotify.com/track/0S9ZVNTNRzLMgb96tmmG1u)
+![Rauw Alejandro!](https://i.scdn.co/image/ab67616d00001e023926e048d839e1173fe17326)
 
-## [Poju: Esson baariin](https://open.spotify.com/track/2SNZVqgDiiuOUe2qPOW1m1)
-![Poju!](https://i.scdn.co/image/ab67616d00001e02f24a53cf00a1ed918854c3e2)
+## [Todrick Hall: RAININ’ FELLAS](https://open.spotify.com/track/0uIitkDvpD2Pv5mE8P8Ntn)
+![Todrick Hall!](https://i.scdn.co/image/ab67616d00001e02f3be00f489f48e9c0161999a)
 
-## [Amy Winehouse: Back To Black](https://open.spotify.com/track/3FAclTFfvUuQYnEsptbK8w)
-![Amy Winehouse!](https://i.scdn.co/image/ab67616d00001e0276ffb5b5ab045d22c81235c1)
+## [J Balvin: Poblado - Remix](https://open.spotify.com/track/1hcLz8JNFW7TbigVAwGbcI)
+![J Balvin!](https://i.scdn.co/image/ab67616d00001e020f6bef9bb271b365e434c403)
 
-## [Kalevauva.fi: Pitääkö synnytyksessä todellakin olla alapää paljaana?](https://open.spotify.com/track/4RkxwAo4HvTJUQTW8xX4sv)
-![Kalevauva.fi!](https://i.scdn.co/image/ab67616d00001e02d01f69ee63fbbc301897dc89)
+## [Rosa Coste: hiukset](https://open.spotify.com/track/1xiBuIOz22vrTPmtdn5QpU)
+![Rosa Coste!](https://i.scdn.co/image/ab67616d00001e021b33e213b121ee5374d21ac5)
 
-## [George Michael: Spinning the Wheel](https://open.spotify.com/track/4V4Ur4PJskr5vR2ek8VHWw)
-![George Michael!](https://i.scdn.co/image/ab67616d00001e02721aa94703c1a94c735aacd0)
+## [Scandinavian Music Group: Kukaan ei ole virheetön](https://open.spotify.com/track/22mo68zM5ONvOPyW4GIWMG)
+![Scandinavian Music Group!](https://i.scdn.co/image/ab67616d00001e020e37ee3656cb60bc7a6df9d7)
 
-## [Niko Ahvonen: Onnen ongintaa](https://open.spotify.com/track/4Zda6WT5hstXwLdrfPn0E8)
-![Niko Ahvonen!](https://i.scdn.co/image/ab67616d00001e02c8849173af6d5b21312c46fd)
+## [Black Motor: Lähempänä taivasta - Live in Berlin 27.10.17](https://open.spotify.com/track/2BpxW4lvYwUCILf0WLw07B)
+![Black Motor!](https://i.scdn.co/image/ab67616d00001e027603717a5c7e32666a6da98e)
+
+## [101: Aamuyö - Rekee Remix](https://open.spotify.com/track/3FELnZSSBVl2cKnRnCTQCP)
+![101!](https://i.scdn.co/image/ab67616d00001e029714650034536d3066a816cd)
+
+## [Eini: Draamaa](https://open.spotify.com/track/3QHGwxsDx5pUQQ07Clp2Q6)
+![Eini!](https://i.scdn.co/image/ab67616d00001e02171e4b4e1098f100f999b600)
+
+## [Chanel: SloMo](https://open.spotify.com/track/3XREkzDHsWdBL5tybyCDBH)
+![Chanel!](https://i.scdn.co/image/ab67616d00001e02e72e1154ce7b6314ba087b0e)
+
+## [Adele: Someone Like You](https://open.spotify.com/track/3bNv3VuUOKgrf5hu3YcuRo)
+![Adele!](https://i.scdn.co/image/ab67616d00001e02fb7eedd9877b0c60597ef3e5)
