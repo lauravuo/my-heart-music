@@ -1,4 +1,4 @@
-My monthly top tracks, updated on 10/7/2022, 2:09:50 AM
+My monthly top tracks, updated on 10/14/2022, 2:28:58 AM
 
 ## [Arppa: Paha meno Pengerkadulla](https://open.spotify.com/track/3bevgUSWRMR9VRhemYCkVr)
 ![Arppa!](https://i.scdn.co/image/ab67616d00001e0257cbbf54289face53c752eef)
@@ -6,17 +6,20 @@ My monthly top tracks, updated on 10/7/2022, 2:09:50 AM
 ## [Kaija Koo: Surulapsi](https://open.spotify.com/track/0nYt9DbjrhbFHAmtgOoF9X)
 ![Kaija Koo!](https://i.scdn.co/image/ab67616d00001e02d9574b788034fd5f2ddc5c94)
 
+## [Maija Vilkkumaa: Pari pikku sääntöö](https://open.spotify.com/track/0hvtltCCXs9ojttN226qBO)
+![Maija Vilkkumaa!](https://i.scdn.co/image/ab67616d00001e028fa0092c300cd8116a82ac4a)
+
 ## [Erin: Päivii niit](https://open.spotify.com/track/1L3uBhszs0UbS5WikRyHp6)
 ![Erin!](https://i.scdn.co/image/ab67616d00001e02f6ba2696fae0a46d575e1cb2)
 
 ## [Arppa: Laila](https://open.spotify.com/track/1QDyODqDEmfd0ldAFCOlf0)
 ![Arppa!](https://i.scdn.co/image/ab67616d00001e02ab00476f3bf0c7eca81ae6ed)
 
-## [Go_A: SHUM](https://open.spotify.com/track/29bhnde7Gvnp7rvY9zsq5S)
-![Go_A!](https://i.scdn.co/image/ab67616d00001e020cef476af39956e71ff4ae2c)
-
 ## [Chisu: Mun kulta](https://open.spotify.com/track/4bCFx1oB7Zee9UWt2cgNbJ)
 ![Chisu!](https://i.scdn.co/image/ab67616d00001e02e39cbf965e205809412f4e8a)
+
+## [Go_A: SHUM](https://open.spotify.com/track/29bhnde7Gvnp7rvY9zsq5S)
+![Go_A!](https://i.scdn.co/image/ab67616d00001e020cef476af39956e71ff4ae2c)
 
 ## [Laura Närhi: Asfaltin pinta](https://open.spotify.com/track/0ErlwGvi1NxpQyB6lUax9A)
 ![Laura Närhi!](https://i.scdn.co/image/ab67616d00001e021ef9ff1716c7b944433a2f7d)
@@ -39,6 +42,9 @@ My monthly top tracks, updated on 10/7/2022, 2:09:50 AM
 ## [VV: Loveletting](https://open.spotify.com/track/2BXdSO2bU47iR2UdEW13GY)
 ![VV!](https://i.scdn.co/image/ab67616d00001e021fd5cfe1be8b406ff4e155f7)
 
+## [Maija Vilkkumaa: Kids Of 88](https://open.spotify.com/track/2JgqJJOxrtACLI6jjANS6P)
+![Maija Vilkkumaa!](https://i.scdn.co/image/ab67616d00001e028fa0092c300cd8116a82ac4a)
+
 ## [Suvi Teräsniska: Vihaton](https://open.spotify.com/track/2LkKksK60ofXNd0hIDuQa3)
 ![Suvi Teräsniska!](https://i.scdn.co/image/ab67616d00001e029678d862493ca6b9b526b1ee)
 
@@ -48,14 +54,8 @@ My monthly top tracks, updated on 10/7/2022, 2:09:50 AM
 ## [Lauri Tähkä: Kaikella on tarkoitus](https://open.spotify.com/track/32aGs7ETdVRBy7JsEKravb)
 ![Lauri Tähkä!](https://i.scdn.co/image/ab67616d00001e026465c284be7ace91298cac58)
 
+## [Maija Vilkkumaa: Äidinmaa](https://open.spotify.com/track/36aOCMCNtr4KXXkUivcdko)
+![Maija Vilkkumaa!](https://i.scdn.co/image/ab67616d00001e028fa0092c300cd8116a82ac4a)
+
 ## [Tuure Kilpeläinen ja Kaihon Karavaani: Kuiskauksia tulevaisuudesta](https://open.spotify.com/track/3kqBlUgmqJ84yOQGqBoAnN)
 ![Tuure Kilpeläinen ja Kaihon Karavaani!](https://i.scdn.co/image/ab67616d00001e02e6a7c1674f2c74fa1ae855b5)
-
-## [VIIVI: Parisuhdehautausmaa](https://open.spotify.com/track/3pQzhjQKES7qGfAW1ROT4a)
-![VIIVI!](https://i.scdn.co/image/ab67616d00001e02011c975d2980da50d6f6c41c)
-
-## [Eros Ramazzotti: AMA](https://open.spotify.com/track/4vRqwUbYoKLAqAwGF01WVy)
-![Eros Ramazzotti!](https://i.scdn.co/image/ab67616d00001e02976622c78423649d4260f949)
-
-## [The 69 Eyes: Drive](https://open.spotify.com/track/5lVnmrlCwNpw0F5ZhO0mKu)
-![The 69 Eyes!](https://i.scdn.co/image/ab67616d00001e02245e731375c234834dc23837)
