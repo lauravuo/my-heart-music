@@ -1,7 +1,4 @@
-My monthly top tracks, updated on 10/14/2022, 2:28:58 AM
-
-## [Arppa: Paha meno Pengerkadulla](https://open.spotify.com/track/3bevgUSWRMR9VRhemYCkVr)
-![Arppa!](https://i.scdn.co/image/ab67616d00001e0257cbbf54289face53c752eef)
+My monthly top tracks, updated on 10/21/2022, 1:53:34 AM
 
 ## [Kaija Koo: Surulapsi](https://open.spotify.com/track/0nYt9DbjrhbFHAmtgOoF9X)
 ![Kaija Koo!](https://i.scdn.co/image/ab67616d00001e02d9574b788034fd5f2ddc5c94)
@@ -12,14 +9,8 @@ My monthly top tracks, updated on 10/14/2022, 2:28:58 AM
 ## [Erin: Päivii niit](https://open.spotify.com/track/1L3uBhszs0UbS5WikRyHp6)
 ![Erin!](https://i.scdn.co/image/ab67616d00001e02f6ba2696fae0a46d575e1cb2)
 
-## [Arppa: Laila](https://open.spotify.com/track/1QDyODqDEmfd0ldAFCOlf0)
-![Arppa!](https://i.scdn.co/image/ab67616d00001e02ab00476f3bf0c7eca81ae6ed)
-
 ## [Chisu: Mun kulta](https://open.spotify.com/track/4bCFx1oB7Zee9UWt2cgNbJ)
 ![Chisu!](https://i.scdn.co/image/ab67616d00001e02e39cbf965e205809412f4e8a)
-
-## [Go_A: SHUM](https://open.spotify.com/track/29bhnde7Gvnp7rvY9zsq5S)
-![Go_A!](https://i.scdn.co/image/ab67616d00001e020cef476af39956e71ff4ae2c)
 
 ## [Laura Närhi: Asfaltin pinta](https://open.spotify.com/track/0ErlwGvi1NxpQyB6lUax9A)
 ![Laura Närhi!](https://i.scdn.co/image/ab67616d00001e021ef9ff1716c7b944433a2f7d)
@@ -39,7 +30,7 @@ My monthly top tracks, updated on 10/14/2022, 2:28:58 AM
 ## [Apocalyptica: I'll Get Through It](https://open.spotify.com/track/1SbCgZrsXYIGpOMlK1H42v)
 ![Apocalyptica!](https://i.scdn.co/image/ab67616d00001e0295146be5fcb42914f8de0661)
 
-## [VV: Loveletting](https://open.spotify.com/track/2BXdSO2bU47iR2UdEW13GY)
+## [VV: Loveletting - 7" Cut](https://open.spotify.com/track/2BXdSO2bU47iR2UdEW13GY)
 ![VV!](https://i.scdn.co/image/ab67616d00001e021fd5cfe1be8b406ff4e155f7)
 
 ## [Maija Vilkkumaa: Kids Of 88](https://open.spotify.com/track/2JgqJJOxrtACLI6jjANS6P)
@@ -59,3 +50,12 @@ My monthly top tracks, updated on 10/14/2022, 2:28:58 AM
 
 ## [Tuure Kilpeläinen ja Kaihon Karavaani: Kuiskauksia tulevaisuudesta](https://open.spotify.com/track/3kqBlUgmqJ84yOQGqBoAnN)
 ![Tuure Kilpeläinen ja Kaihon Karavaani!](https://i.scdn.co/image/ab67616d00001e02e6a7c1674f2c74fa1ae855b5)
+
+## [VIIVI: Parisuhdehautausmaa](https://open.spotify.com/track/3pQzhjQKES7qGfAW1ROT4a)
+![VIIVI!](https://i.scdn.co/image/ab67616d00001e02011c975d2980da50d6f6c41c)
+
+## [Hulda Huima: Kärpänen](https://open.spotify.com/track/4FrENaZ2rmwSELY7prLVZD)
+![Hulda Huima!](https://i.scdn.co/image/ab67616d00001e02aa74294e47ba4ad2eb083b92)
+
+## [Eros Ramazzotti: AMA](https://open.spotify.com/track/4vRqwUbYoKLAqAwGF01WVy)
+![Eros Ramazzotti!](https://i.scdn.co/image/ab67616d00001e02976622c78423649d4260f949)
