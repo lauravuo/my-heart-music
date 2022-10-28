@@ -1,4 +1,4 @@
-My monthly top tracks, updated on 10/21/2022, 1:53:34 AM
+My monthly top tracks, updated on 10/28/2022, 2:05:08 AM
 
 ## [Kaija Koo: Surulapsi](https://open.spotify.com/track/0nYt9DbjrhbFHAmtgOoF9X)
 ![Kaija Koo!](https://i.scdn.co/image/ab67616d00001e02d9574b788034fd5f2ddc5c94)
@@ -6,56 +6,56 @@ My monthly top tracks, updated on 10/21/2022, 1:53:34 AM
 ## [Maija Vilkkumaa: Pari pikku sääntöö](https://open.spotify.com/track/0hvtltCCXs9ojttN226qBO)
 ![Maija Vilkkumaa!](https://i.scdn.co/image/ab67616d00001e028fa0092c300cd8116a82ac4a)
 
-## [Erin: Päivii niit](https://open.spotify.com/track/1L3uBhszs0UbS5WikRyHp6)
-![Erin!](https://i.scdn.co/image/ab67616d00001e02f6ba2696fae0a46d575e1cb2)
+## [Scandinavian Music Group: Tahdon uudet silmät](https://open.spotify.com/track/1tusMz1yphsnMz7RmZLcDF)
+![Scandinavian Music Group!](https://i.scdn.co/image/ab67616d00001e026016026c5faf37a49193e454)
 
-## [Chisu: Mun kulta](https://open.spotify.com/track/4bCFx1oB7Zee9UWt2cgNbJ)
-![Chisu!](https://i.scdn.co/image/ab67616d00001e02e39cbf965e205809412f4e8a)
+## [Arppa: Paha meno Pengerkadulla](https://open.spotify.com/track/3bevgUSWRMR9VRhemYCkVr)
+![Arppa!](https://i.scdn.co/image/ab67616d00001e0257cbbf54289face53c752eef)
 
-## [Laura Närhi: Asfaltin pinta](https://open.spotify.com/track/0ErlwGvi1NxpQyB6lUax9A)
-![Laura Närhi!](https://i.scdn.co/image/ab67616d00001e021ef9ff1716c7b944433a2f7d)
+## [Meiju Suvas: Irti (Vain elämää kausi 13)](https://open.spotify.com/track/0fgt0VoQim7gGZTPJBn1RM)
+![Meiju Suvas!](https://i.scdn.co/image/ab67616d00001e02532f45eefb25152ab2932eab)
 
-## [Elonkerjuu: Pohjanneito](https://open.spotify.com/track/0WHtFDnUIlcd05NBteODNp)
-![Elonkerjuu!](https://i.scdn.co/image/ab67616d00001e02e22f5f4724f48aec4fbb0058)
-
-## [Lady Gaga: Hold My Hand](https://open.spotify.com/track/0oWraSo5ASJ0h1BEagTyEw)
-![Lady Gaga!](https://i.scdn.co/image/ab67616d00001e02b7e7edfee5626b7b1f15192a)
-
-## [Vahtera: Onko kukaan nähny Marloo?](https://open.spotify.com/track/0rtxCHKqfPoMigrA3SKY7n)
-![Vahtera!](https://i.scdn.co/image/ab67616d00001e0299c36718d9f3ba74efd4d6a1)
-
-## [Poets of the Fall: Requiem for My Harlequin - Radio Edit](https://open.spotify.com/track/1AZfDPVtcl6MmQFhKurIqY)
-![Poets of the Fall!](https://i.scdn.co/image/ab67616d00001e026a3f749041bb46b9ff67c934)
-
-## [Apocalyptica: I'll Get Through It](https://open.spotify.com/track/1SbCgZrsXYIGpOMlK1H42v)
-![Apocalyptica!](https://i.scdn.co/image/ab67616d00001e0295146be5fcb42914f8de0661)
-
-## [VV: Loveletting - 7" Cut](https://open.spotify.com/track/2BXdSO2bU47iR2UdEW13GY)
-![VV!](https://i.scdn.co/image/ab67616d00001e021fd5cfe1be8b406ff4e155f7)
+## [Arppa: Laila](https://open.spotify.com/track/1QDyODqDEmfd0ldAFCOlf0)
+![Arppa!](https://i.scdn.co/image/ab67616d00001e02ab00476f3bf0c7eca81ae6ed)
 
 ## [Maija Vilkkumaa: Kids Of 88](https://open.spotify.com/track/2JgqJJOxrtACLI6jjANS6P)
 ![Maija Vilkkumaa!](https://i.scdn.co/image/ab67616d00001e028fa0092c300cd8116a82ac4a)
 
-## [Suvi Teräsniska: Vihaton](https://open.spotify.com/track/2LkKksK60ofXNd0hIDuQa3)
-![Suvi Teräsniska!](https://i.scdn.co/image/ab67616d00001e029678d862493ca6b9b526b1ee)
-
-## [Kuningasidea: Turku - Tampere](https://open.spotify.com/track/2T6UpfyDA2BaMUa34nq4AX)
-![Kuningasidea!](https://i.scdn.co/image/ab67616d00001e02bce390ad714be0ede90cae51)
-
-## [Lauri Tähkä: Kaikella on tarkoitus](https://open.spotify.com/track/32aGs7ETdVRBy7JsEKravb)
-![Lauri Tähkä!](https://i.scdn.co/image/ab67616d00001e026465c284be7ace91298cac58)
-
 ## [Maija Vilkkumaa: Äidinmaa](https://open.spotify.com/track/36aOCMCNtr4KXXkUivcdko)
 ![Maija Vilkkumaa!](https://i.scdn.co/image/ab67616d00001e028fa0092c300cd8116a82ac4a)
-
-## [Tuure Kilpeläinen ja Kaihon Karavaani: Kuiskauksia tulevaisuudesta](https://open.spotify.com/track/3kqBlUgmqJ84yOQGqBoAnN)
-![Tuure Kilpeläinen ja Kaihon Karavaani!](https://i.scdn.co/image/ab67616d00001e02e6a7c1674f2c74fa1ae855b5)
-
-## [VIIVI: Parisuhdehautausmaa](https://open.spotify.com/track/3pQzhjQKES7qGfAW1ROT4a)
-![VIIVI!](https://i.scdn.co/image/ab67616d00001e02011c975d2980da50d6f6c41c)
 
 ## [Hulda Huima: Kärpänen](https://open.spotify.com/track/4FrENaZ2rmwSELY7prLVZD)
 ![Hulda Huima!](https://i.scdn.co/image/ab67616d00001e02aa74294e47ba4ad2eb083b92)
 
-## [Eros Ramazzotti: AMA](https://open.spotify.com/track/4vRqwUbYoKLAqAwGF01WVy)
-![Eros Ramazzotti!](https://i.scdn.co/image/ab67616d00001e02976622c78423649d4260f949)
+## [Arja Koriseva: Leipää, lempee, lämpöö](https://open.spotify.com/track/4QEKHVGAmElwyVxRv80iqk)
+![Arja Koriseva!](https://i.scdn.co/image/ab67616d00001e02bc990112e36b66066a1dc891)
+
+## [George Michael: Spinning the Wheel](https://open.spotify.com/track/4V4Ur4PJskr5vR2ek8VHWw)
+![George Michael!](https://i.scdn.co/image/ab67616d00001e02721aa94703c1a94c735aacd0)
+
+## [Lake Jons: Do You Recall?](https://open.spotify.com/track/7ATW5KEQSsv12WyMvJxRog)
+![Lake Jons!](https://i.scdn.co/image/ab67616d00001e0236b655fff859f2d60b84d70c)
+
+## [Disco Ensemble: Das Boot](https://open.spotify.com/track/7xtGT9FDADjOgV6ZPMLmFK)
+![Disco Ensemble!](https://i.scdn.co/image/ab67616d00001e02c76c2fdbb58ce21af5f405de)
+
+## [Maija Vilkkumaa: Betty Draper](https://open.spotify.com/track/0hesHlOQaPgxN8WjfA9v5x)
+![Maija Vilkkumaa!](https://i.scdn.co/image/ab67616d00001e028fa0092c300cd8116a82ac4a)
+
+## [Chanel: SloMo](https://open.spotify.com/track/3XREkzDHsWdBL5tybyCDBH)
+![Chanel!](https://i.scdn.co/image/ab67616d00001e02e72e1154ce7b6314ba087b0e)
+
+## [Chisu: Jos menet pois (Vain elämää kausi 5)](https://open.spotify.com/track/5Njc27HQZ6vw9xBaGvmeh3)
+![Chisu!](https://i.scdn.co/image/ab67616d00001e02bb3e4cdf55ce2de7614e049a)
+
+## [Emma Salokoski: Kiellettyjä asioita](https://open.spotify.com/track/17I3UNrriexkqE36lwW44G)
+![Emma Salokoski!](https://i.scdn.co/image/ab67616d00001e02532c7f59762fc35cd82204c7)
+
+## [Scandinavian Music Group: Ruotsiin ja takaisin](https://open.spotify.com/track/2jRzzBLPUywKbIB3ZGjxKU)
+![Scandinavian Music Group!](https://i.scdn.co/image/ab67616d00001e02ff3ac2a6ad20758c36a30237)
+
+## [Mummin Kullat: Lähestymiskielto](https://open.spotify.com/track/0PfxH3ZNTLMibYVUcS5XZW)
+![Mummin Kullat!](https://i.scdn.co/image/ab67616d00001e021d1df0195fada685372d8f59)
+
+## [The Weeknd: Blinding Lights](https://open.spotify.com/track/0VjIjW4GlUZAMYd2vXMi3b)
+![The Weeknd!](https://i.scdn.co/image/ab67616d00001e028863bc11d2aa12b54f5aeb36)
