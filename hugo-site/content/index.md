@@ -1,10 +1,10 @@
-My monthly top tracks, updated on 11/25/2022, 1:35:13 AM
-
-## [Bonnie Tyler: Holding Out for a Hero - From "Footloose" Soundtrack](https://open.spotify.com/track/5Hyr47BBGpvOfcykSCcaw9)
-![Bonnie Tyler!](https://i.scdn.co/image/ab67616d00001e02d2675cb6847d1b1da9fc28a3)
+My monthly top tracks, updated on 12/2/2022, 1:21:48 AM
 
 ## [Litku Klemetti: Jääkuningatar](https://open.spotify.com/track/2lB15LfZER8op4ixZdWgaV)
 ![Litku Klemetti!](https://i.scdn.co/image/ab67616d00001e022229ac44e92fe380232c5710)
+
+## [Bonnie Tyler: Holding Out for a Hero - From "Footloose" Soundtrack](https://open.spotify.com/track/5Hyr47BBGpvOfcykSCcaw9)
+![Bonnie Tyler!](https://i.scdn.co/image/ab67616d00001e02d2675cb6847d1b1da9fc28a3)
 
 ## [Arppa: Laila](https://open.spotify.com/track/1QDyODqDEmfd0ldAFCOlf0)
 ![Arppa!](https://i.scdn.co/image/ab67616d00001e02ab00476f3bf0c7eca81ae6ed)
@@ -21,6 +21,9 @@ My monthly top tracks, updated on 11/25/2022, 1:35:13 AM
 ## [Laura Närhi: Elämän käyttöohje](https://open.spotify.com/track/2PwwEqTcm4HA0BEL1bjFYL)
 ![Laura Närhi!](https://i.scdn.co/image/ab67616d00001e027076acf3affe8d9b1e2e3a11)
 
+## [Kerkko Koskinen Kollektiivi: Nukun hiljaa kirkkomaassa](https://open.spotify.com/track/5bFOn8n2sUGL0kEkpciJZC)
+![Kerkko Koskinen Kollektiivi!](https://i.scdn.co/image/ab67616d00001e0224a5cdbb6e59f3200ad0e94f)
+
 ## [Daði Freyr: 10 Years](https://open.spotify.com/track/6N6HSN3zytFXva8LTUUvIL)
 ![Daði Freyr!](https://i.scdn.co/image/ab67616d00001e02f34d3eea6e5c5c9218f438ef)
 
@@ -35,6 +38,9 @@ My monthly top tracks, updated on 11/25/2022, 1:35:13 AM
 
 ## [Chanel: SloMo](https://open.spotify.com/track/3XREkzDHsWdBL5tybyCDBH)
 ![Chanel!](https://i.scdn.co/image/ab67616d00001e02e72e1154ce7b6314ba087b0e)
+
+## [Vesala: Jouluksi mummolaan (Vain elämää joulu)](https://open.spotify.com/track/0TZLDwXDn9v2FH4URbIFqc)
+![Vesala!](https://i.scdn.co/image/ab67616d00001e02b4dffaed8cb60f25ec72f02e)
 
 ## [Mikko Harju: Tulkoon joulu](https://open.spotify.com/track/2IUtAp2xWR0JXxiJD29QPG)
 ![Mikko Harju!](https://i.scdn.co/image/ab67616d00001e02a954eab387ed9746c9976567)
@@ -53,9 +59,3 @@ My monthly top tracks, updated on 11/25/2022, 1:35:13 AM
 
 ## [Emilia: Satan in Love](https://open.spotify.com/track/0Z1vJX0OuNgGxogw8FDAnH)
 ![Emilia!](https://i.scdn.co/image/ab67616d00001e02c102dceda4de8dae551fb777)
-
-## [Lea Laven: Samppanjaa](https://open.spotify.com/track/1jw985swCCpWI6AU42Mnm8)
-![Lea Laven!](https://i.scdn.co/image/ab67616d00001e0269789305bf864f70cc7019dc)
-
-## [Adele: Water Under the Bridge](https://open.spotify.com/track/2DRMuw0U0QbkVQxWxdJV3M)
-![Adele!](https://i.scdn.co/image/ab67616d00001e02f1ea3305aa003425dda05882)
