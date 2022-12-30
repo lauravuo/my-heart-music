@@ -1,7 +1,4 @@
-My monthly top tracks, updated on 12/23/2022, 1:16:50 AM
-
-## [Arppa: Laila](https://open.spotify.com/track/1QDyODqDEmfd0ldAFCOlf0)
-![Arppa!](https://i.scdn.co/image/ab67616d00001e02ab00476f3bf0c7eca81ae6ed)
+My monthly top tracks, updated on 12/30/2022, 1:19:28 AM
 
 ## [Johann Sebastian Bach: Christmas Oratorio, BWV 248: Jauchzet, frohlocket, auf, preiset die Tage!](https://open.spotify.com/track/2kXbcGjL7MpGCAg1new4kI)
 ![Johann Sebastian Bach!](https://i.scdn.co/image/ab67616d00001e02f0baec94d016c9a699d171f1)
@@ -9,47 +6,26 @@ My monthly top tracks, updated on 12/23/2022, 1:16:50 AM
 ## [Ella Fitzgerald: Have Yourself A Merry Little Christmas](https://open.spotify.com/track/04DgAebjdBrB8e9ArIifpM)
 ![Ella Fitzgerald!](https://i.scdn.co/image/ab67616d00001e02719191086876ae09b5db54c8)
 
-## [Billie Holiday: Strange Fruit](https://open.spotify.com/track/1CTex49P0iWwzUGsMNjgaV)
-![Billie Holiday!](https://i.scdn.co/image/ab67616d00001e02f8743d2c7812763f7f66e83b)
+## [Kelly Clarkson: It's Beginning To Look A Lot Like Christmas](https://open.spotify.com/track/0TN4LrBEiaXc7BWfC77Nt3)
+![Kelly Clarkson!](https://i.scdn.co/image/ab67616d00001e021fa667a7a53c7072fed91a17)
 
-## [Go_A: SHUM](https://open.spotify.com/track/29bhnde7Gvnp7rvY9zsq5S)
-![Go_A!](https://i.scdn.co/image/ab67616d00001e020cef476af39956e71ff4ae2c)
-
-## [Litku Klemetti: Jääkuningatar](https://open.spotify.com/track/2lB15LfZER8op4ixZdWgaV)
-![Litku Klemetti!](https://i.scdn.co/image/ab67616d00001e022229ac44e92fe380232c5710)
-
-## [Charlotte Perrelli: Här står jag](https://open.spotify.com/track/3IiXl3mbGoArPjDrtTCUgj)
-![Charlotte Perrelli!](https://i.scdn.co/image/ab67616d00001e0244051a83470a1ef27f8b5f7e)
-
-## [Kerkko Koskinen Kollektiivi: Nukun hiljaa kirkkomaassa](https://open.spotify.com/track/5bFOn8n2sUGL0kEkpciJZC)
-![Kerkko Koskinen Kollektiivi!](https://i.scdn.co/image/ab67616d00001e0224a5cdbb6e59f3200ad0e94f)
-
-## [Björk: Violently Happy](https://open.spotify.com/track/657lJn46lokhgSzdlDJgVm)
-![Björk!](https://i.scdn.co/image/ab67616d00001e02768d171a47a3adae90c7c48a)
-
-## [Antti Autio: Kaikki hyvin](https://open.spotify.com/track/2PUzxuL2bd9OooJ1WZHPzP)
-![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02c4b6e5b06639167f6f3bd96e)
+## [Carola: Himlen i min famn](https://open.spotify.com/track/6135boBE5RW4RWfS7WN2mD)
+![Carola!](https://i.scdn.co/image/ab67616d00001e024f6398b1aff56eb4fb07dd5a)
 
 ## [Paula Koivuniemi: Rakkaustarina](https://open.spotify.com/track/3mJmAyWHZJCqXksCdcAaed)
 ![Paula Koivuniemi!](https://i.scdn.co/image/ab67616d00001e02d21659b76f4a6cee6dbcf688)
 
-## [BESS: Ram pam pam](https://open.spotify.com/track/55qPuI6NekVyNPM6kh5DN4)
-![BESS!](https://i.scdn.co/image/ab67616d00001e023df4c039599e87ba78203d41)
-
-## [Maroon 5: Moves Like Jagger](https://open.spotify.com/track/1r299qCKBLgUS9XJ9m1kEx)
-![Maroon 5!](https://i.scdn.co/image/ab67616d00001e02c5e1cecaedcd413599e4e866)
-
 ## [Kaija Koo: Tinakenkätyttö](https://open.spotify.com/track/2NVfzcoW1UgEJXg8GyvPfH)
 ![Kaija Koo!](https://i.scdn.co/image/ab67616d00001e027192391e239253276c239e1d)
 
-## [Anki: Sunny](https://open.spotify.com/track/3Jxm6rsNfoUNZqMna7bLYW)
-![Anki!](https://i.scdn.co/image/ab67616d00001e02cd2025d42625120565d8a403)
+## [Vesa-Matti Loiri: Enkeli taivaan](https://open.spotify.com/track/3eoYy0urInpnY7sHKN2Di7)
+![Vesa-Matti Loiri!](https://i.scdn.co/image/ab67616d00001e02c2b670d5c7bae3b01baf28b2)
 
-## [Vesala: Uu mama](https://open.spotify.com/track/4gfaPfCrW3lM4FpGeLyORb)
-![Vesala!](https://i.scdn.co/image/ab67616d00001e02ebe92939dcbccd47afafe7e7)
+## [BESS: Ram pam pam](https://open.spotify.com/track/55qPuI6NekVyNPM6kh5DN4)
+![BESS!](https://i.scdn.co/image/ab67616d00001e023df4c039599e87ba78203d41)
 
-## [Madonna: Express Yourself](https://open.spotify.com/track/6ioBgySxoeQKALvAeLEmId)
-![Madonna!](https://i.scdn.co/image/ab67616d00001e028f9f218b386e6aeb27184307)
+## [Suvi Teräsniska: Joulun henki](https://open.spotify.com/track/5SJgIdsZjPBmMEGFb9SR8H)
+![Suvi Teräsniska!](https://i.scdn.co/image/ab67616d00001e02e845ccc8b18f001893f96a11)
 
 ## [Kygo: Higher Love](https://open.spotify.com/track/6oJ6le65B3SEqPwMRNXWjY)
 ![Kygo!](https://i.scdn.co/image/ab67616d00001e027c8977a0ad3a3a0627be9ed7)
@@ -59,3 +35,27 @@ My monthly top tracks, updated on 12/23/2022, 1:16:50 AM
 
 ## [The Andrews Sisters: Rum and Coca Cola](https://open.spotify.com/track/7bk5B1JZf29iEfUx2NIDm0)
 ![The Andrews Sisters!](https://i.scdn.co/image/ab67616d00001e02b9bfa34fc7c1b0b3763dc869)
+
+## [Rajaton: Joululaulu](https://open.spotify.com/track/2Z0qQ95aJIdecsqWKjKXUw)
+![Rajaton!](https://i.scdn.co/image/ab67616d00001e0268091f38544c66bfc9228ff9)
+
+## [Mikko Kuustonen: Huoneen täydeltä Pyhää - Anna laulu lahjaksi](https://open.spotify.com/track/08IEcnqUbFLS2iRE5geIIc)
+![Mikko Kuustonen!](https://i.scdn.co/image/ab67616d00001e02f326f9959bd38124c89ffa1d)
+
+## [Jani & Jetsetters: Etupenkillä](https://open.spotify.com/track/0FJYamY1thY7XSBGSGD2jZ)
+![Jani & Jetsetters!](https://i.scdn.co/image/ab67616d00001e022718a31b798e34049c497dfb)
+
+## [Céline Dion: Les Cloches du Hameau](https://open.spotify.com/track/0FnDpz9Wo8xawwu5DrzCI4)
+![Céline Dion!](https://i.scdn.co/image/ab67616d00001e023095cc2cb7ce3079685d4787)
+
+## [Vesala: Jouluksi mummolaan (Vain elämää joulu)](https://open.spotify.com/track/0TZLDwXDn9v2FH4URbIFqc)
+![Vesala!](https://i.scdn.co/image/ab67616d00001e02b4dffaed8cb60f25ec72f02e)
+
+## [Paula Koivuniemi: Tähti tähdistä kirkkain](https://open.spotify.com/track/0XhP6RT23a0MttcusInDBL)
+![Paula Koivuniemi!](https://i.scdn.co/image/ab67616d00001e02b0ede1be7afa9adcd5a1df7e)
+
+## [Meiju Suvas: Christmas Time (Vain elämää kausi 13)](https://open.spotify.com/track/0nno74Ax3kMpw0T2PrGTBI)
+![Meiju Suvas!](https://i.scdn.co/image/ab67616d00001e025a6391529a007c66c7affe3c)
+
+## [Ella Fitzgerald: Sleigh Ride](https://open.spotify.com/track/1jYwLRXc7D0oeVARfTG59s)
+![Ella Fitzgerald!](https://i.scdn.co/image/ab67616d00001e02719191086876ae09b5db54c8)
