@@ -1,4 +1,4 @@
-My monthly top tracks, updated on 6/23/2023, 1:41:24 AM
+My monthly top tracks, updated on 6/30/2023, 1:37:40 AM
 
 ## [Matchbox Twenty: Friends](https://open.spotify.com/track/41ci6rXCjH5TqiWEunLCuf)
 ![Matchbox Twenty!](https://i.scdn.co/image/ab67616d00001e020c548d5d98bc110102eac96f)
@@ -9,8 +9,20 @@ My monthly top tracks, updated on 6/23/2023, 1:41:24 AM
 ## [Zaz: L'une ou l'autre](https://open.spotify.com/track/0NfsToB3qHg5gdRvSDOced)
 ![Zaz!](https://i.scdn.co/image/ab67616d00001e0263283d96de70d2e6273da91c)
 
+## [Paula Koivuniemi: Mieto väkevä (feat. Tuure Kilpeläinen & Kaihon Karavaani)](https://open.spotify.com/track/0O7pXpQcAWbRWXeFlqnchx)
+![Paula Koivuniemi!](https://i.scdn.co/image/ab67616d00001e020748d5dd53d4d8a7d000b41f)
+
+## [Alessandra: Queen of Kings](https://open.spotify.com/track/14LdhxElpZS0rKVV4nxtdA)
+![Alessandra!](https://i.scdn.co/image/ab67616d00001e022c9eea7700ceb07c4dabf114)
+
+## [Gal Costa: Nao Identificado](https://open.spotify.com/track/1eqUenDSQsy87cpoogbKvi)
+![Gal Costa!](https://i.scdn.co/image/ab67616d00001e0295ce0914cbddd405600e1e12)
+
 ## [Ilta: Taivas maan päällä](https://open.spotify.com/track/3Fy2xX68usyByATSTstJL1)
 ![Ilta!](https://i.scdn.co/image/ab67616d00001e022a5b35a5efbfffaef66c9356)
+
+## [Komiat: Iskelmäprinssi laulaa](https://open.spotify.com/track/7HWU2Jfa5pJXzyTNZbgUtn)
+![Komiat!](https://i.scdn.co/image/ab67616d00001e0295ba2a2b31b88ef35d8fe53a)
 
 ## [ELF: Tarantella Joe](https://open.spotify.com/track/04yQ6iP1nZ5sRxoNTI1f4L)
 ![ELF!](https://i.scdn.co/image/ab67616d00001e02e95a33a34fa4740450f9f2b0)
@@ -18,44 +30,32 @@ My monthly top tracks, updated on 6/23/2023, 1:41:24 AM
 ## [Laura Moisio: Ohi ajettiin](https://open.spotify.com/track/06EhsDMQmS5R7OLweWzvRs)
 ![Laura Moisio!](https://i.scdn.co/image/ab67616d00001e023bd71d04b15c0af5fc9886fe)
 
+## [Eila Pellinen: Pakoon, pakoon](https://open.spotify.com/track/0wjYHzLvdm5hRGjgmUJ8qH)
+![Eila Pellinen!](https://i.scdn.co/image/ab67616d00001e0250cc26bf6f13845cf0ea7944)
+
+## [Lord Est: Keski-Suomeen (feat. Meiju Suvas)](https://open.spotify.com/track/1OlZb9YC70JTVSAMi2YcY8)
+![Lord Est!](https://i.scdn.co/image/ab67616d00001e029ca45148082c1a924e768f80)
+
+## [Orvokki: Tyhjäpää](https://open.spotify.com/track/1rHo698L03B0W146V4iAmv)
+![Orvokki!](https://i.scdn.co/image/ab67616d00001e02ba4f775c821aafd4de269edb)
+
+## [The 5th Dimension: Stoned Soul Picnic - Remastered 2000](https://open.spotify.com/track/23OBcAyQonpaJ2XswR0k1I)
+![The 5th Dimension!](https://i.scdn.co/image/ab67616d00001e02b6c5579fca6375b4a01518e1)
+
+## [Liisa Akimof: Ajatus tulee, ajatus menee](https://open.spotify.com/track/2dKmmIdX8wmF8pWq9YyFWr)
+![Liisa Akimof!](https://i.scdn.co/image/ab67616d00001e021735263130519ba3038109b8)
+
+## [Aki Sirkesalo: Mä Tuun Kotiin](https://open.spotify.com/track/43GEbyFzp0YuztlX37ARjk)
+![Aki Sirkesalo!](https://i.scdn.co/image/ab67616d00001e02af081858599618166f01ed2a)
+
 ## [Olavi Uusivirta: E=mc²](https://open.spotify.com/track/4JTfk302eeC1yC9Vr2w1Qm)
 ![Olavi Uusivirta!](https://i.scdn.co/image/ab67616d00001e02a5cbe20cf1983c1082c1e7ba)
 
 ## [Aksel Kankaanranta: Ilman sua](https://open.spotify.com/track/4aXs7yJnuyfN0yZe1J8eSw)
 ![Aksel Kankaanranta!](https://i.scdn.co/image/ab67616d00001e02d15754c1feb5c3676a0d7c81)
 
+## [Taylor Swift: Snow On The Beach (feat. More Lana Del Rey)](https://open.spotify.com/track/4zmKGsrXjLmljb5fTaBTot)
+![Taylor Swift!](https://i.scdn.co/image/ab67616d00001e02fa747621a53c8e2cc436dee0)
+
 ## [Ludovico Einaudi: Lady Labyrinth](https://open.spotify.com/track/5CfhecfOuh8JnaTdO94zhI)
 ![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e02ce1a160e20eb09d3f3807acb)
-
-## [Marxist Love Disco Ensemble: Dust](https://open.spotify.com/track/5gpbWINvRWEX7Dnd4Vewtw)
-![Marxist Love Disco Ensemble!](https://i.scdn.co/image/ab67616d00001e025f147e70b5c97de8397c9665)
-
-## [Samae Koskinen: Ihana pitkä suvi](https://open.spotify.com/track/52TAfgdCdfxdPlqMpmSzZU)
-![Samae Koskinen!](https://i.scdn.co/image/ab67616d00001e02fe53109bff60a679c4077f37)
-
-## [Susanna Haavisto: Minä soitan harmonikkaa](https://open.spotify.com/track/02RPGM6tmBdDqpkUcnG33g)
-![Susanna Haavisto!](https://i.scdn.co/image/ab67616d00001e02bc94e75c95e8228c572a97ae)
-
-## [Topi Latukka: Täydellisii paperil](https://open.spotify.com/track/05crvbI3qCQuwJXp5uTQMM)
-![Topi Latukka!](https://i.scdn.co/image/ab67616d00001e024568765f6c8aebfd013a0823)
-
-## [Marko Haavisto & Poutahaukat: Humppastar](https://open.spotify.com/track/06TUr8gt4e6bQohG0w3qT5)
-![Marko Haavisto & Poutahaukat!](https://i.scdn.co/image/ab67616d00001e02e13d7651cd73a898176756c5)
-
-## [Nykyaika: Uutta, vanhaa, ritsattua](https://open.spotify.com/track/0AqL4Ehh4wIWz5qxAjBK0C)
-![Nykyaika!](https://i.scdn.co/image/ab67616d00001e023e89fadea42758d815be71e1)
-
-## [Ani Lorak: Shady Lady](https://open.spotify.com/track/0DHet9TdSsdouIbOjvLf3m)
-![Ani Lorak!](https://i.scdn.co/image/ab67616d00001e02d62b39f8a860ed9c86c13eaf)
-
-## [Paula Koivuniemi: Mieto väkevä (feat. Tuure Kilpeläinen & Kaihon Karavaani)](https://open.spotify.com/track/0O7pXpQcAWbRWXeFlqnchx)
-![Paula Koivuniemi!](https://i.scdn.co/image/ab67616d00001e020748d5dd53d4d8a7d000b41f)
-
-## [Arja Havakka: Sinne ainiaaksi jään](https://open.spotify.com/track/0Pb7Y1vpZjmEv61SUXR6BD)
-![Arja Havakka!](https://i.scdn.co/image/ab67616d00001e02ed2d4968b1c3b1eb29285857)
-
-## [J. Karjalainen: Rosetta](https://open.spotify.com/track/0R42dxa1Z212rhaTMlCfEa)
-![J. Karjalainen!](https://i.scdn.co/image/ab67616d00001e02d68b3b2a22660cd6599ac5ea)
-
-## [Aretha Franklin: Rolling In the Deep (The Aretha Version)](https://open.spotify.com/track/0UdRGHCSRvn85nN0IfHFmq)
-![Aretha Franklin!](https://i.scdn.co/image/ab67616d00001e02542cc41d59b4bb40fd1d63dc)
