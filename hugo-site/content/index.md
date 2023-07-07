@@ -1,10 +1,10 @@
-My monthly top tracks, updated on 6/30/2023, 1:37:40 AM
+My monthly top tracks, updated on 7/7/2023, 1:42:16 AM
 
-## [Matchbox Twenty: Friends](https://open.spotify.com/track/41ci6rXCjH5TqiWEunLCuf)
-![Matchbox Twenty!](https://i.scdn.co/image/ab67616d00001e020c548d5d98bc110102eac96f)
+## [Aki Sirkesalo: Mä Tuun Kotiin](https://open.spotify.com/track/43GEbyFzp0YuztlX37ARjk)
+![Aki Sirkesalo!](https://i.scdn.co/image/ab67616d00001e02af081858599618166f01ed2a)
 
-## [Helena Haaparanta: Miks mä oon vieläkin näin](https://open.spotify.com/track/6KUHGkM5c7n15o81c9U4B9)
-![Helena Haaparanta!](https://i.scdn.co/image/ab67616d00001e028b8d18dbdc4f9c2f4df4025a)
+## [Anna Puu: Rakkaus tappaa](https://open.spotify.com/track/1v0MVxPYvBYLsS6rQnV9nq)
+![Anna Puu!](https://i.scdn.co/image/ab67616d00001e02e0dfa42c700047d6478f1c7b)
 
 ## [Zaz: L'une ou l'autre](https://open.spotify.com/track/0NfsToB3qHg5gdRvSDOced)
 ![Zaz!](https://i.scdn.co/image/ab67616d00001e0263283d96de70d2e6273da91c)
@@ -18,17 +18,29 @@ My monthly top tracks, updated on 6/30/2023, 1:37:40 AM
 ## [Gal Costa: Nao Identificado](https://open.spotify.com/track/1eqUenDSQsy87cpoogbKvi)
 ![Gal Costa!](https://i.scdn.co/image/ab67616d00001e0295ce0914cbddd405600e1e12)
 
-## [Ilta: Taivas maan päällä](https://open.spotify.com/track/3Fy2xX68usyByATSTstJL1)
-![Ilta!](https://i.scdn.co/image/ab67616d00001e022a5b35a5efbfffaef66c9356)
+## [Timo Kiiskinen: Hannan Ja Kertun Häävalssi](https://open.spotify.com/track/4djlaBzpeqrGZP1UbwiFwz)
+![Timo Kiiskinen!](https://i.scdn.co/image/ab67616d00001e02ff2cc5559ebc8a8cd923b277)
 
 ## [Komiat: Iskelmäprinssi laulaa](https://open.spotify.com/track/7HWU2Jfa5pJXzyTNZbgUtn)
 ![Komiat!](https://i.scdn.co/image/ab67616d00001e0295ba2a2b31b88ef35d8fe53a)
+
+## [P!nk: Dear Mr. President - Live At Q Music](https://open.spotify.com/track/094XuBM7LzHtyh6cIHJkpd)
+![P!nk!](https://i.scdn.co/image/ab67616d00001e02cb6c2cbf127adfc8354b4c7d)
+
+## [Sin With Sebastian: Right or Wrong](https://open.spotify.com/track/125f32tCpnhMTF8JQSEQaR)
+![Sin With Sebastian!](https://i.scdn.co/image/ab67616d00001e0252d9f0f29da6096f98b62603)
+
+## [Aki Sirkesalo: Tule Nyt](https://open.spotify.com/track/2SFXECJHKLKaN6HQilOR26)
+![Aki Sirkesalo!](https://i.scdn.co/image/ab67616d00001e02a68a0be3a9c8373a6b93ad45)
 
 ## [ELF: Tarantella Joe](https://open.spotify.com/track/04yQ6iP1nZ5sRxoNTI1f4L)
 ![ELF!](https://i.scdn.co/image/ab67616d00001e02e95a33a34fa4740450f9f2b0)
 
 ## [Laura Moisio: Ohi ajettiin](https://open.spotify.com/track/06EhsDMQmS5R7OLweWzvRs)
 ![Laura Moisio!](https://i.scdn.co/image/ab67616d00001e023bd71d04b15c0af5fc9886fe)
+
+## [Adele: Love In The Dark](https://open.spotify.com/track/0DuWDLjriRPjDRoPgaCslY)
+![Adele!](https://i.scdn.co/image/ab67616d00001e027b9888dc365b8f957c63df14)
 
 ## [Eila Pellinen: Pakoon, pakoon](https://open.spotify.com/track/0wjYHzLvdm5hRGjgmUJ8qH)
 ![Eila Pellinen!](https://i.scdn.co/image/ab67616d00001e0250cc26bf6f13845cf0ea7944)
@@ -45,17 +57,5 @@ My monthly top tracks, updated on 6/30/2023, 1:37:40 AM
 ## [Liisa Akimof: Ajatus tulee, ajatus menee](https://open.spotify.com/track/2dKmmIdX8wmF8pWq9YyFWr)
 ![Liisa Akimof!](https://i.scdn.co/image/ab67616d00001e021735263130519ba3038109b8)
 
-## [Aki Sirkesalo: Mä Tuun Kotiin](https://open.spotify.com/track/43GEbyFzp0YuztlX37ARjk)
-![Aki Sirkesalo!](https://i.scdn.co/image/ab67616d00001e02af081858599618166f01ed2a)
-
-## [Olavi Uusivirta: E=mc²](https://open.spotify.com/track/4JTfk302eeC1yC9Vr2w1Qm)
-![Olavi Uusivirta!](https://i.scdn.co/image/ab67616d00001e02a5cbe20cf1983c1082c1e7ba)
-
-## [Aksel Kankaanranta: Ilman sua](https://open.spotify.com/track/4aXs7yJnuyfN0yZe1J8eSw)
-![Aksel Kankaanranta!](https://i.scdn.co/image/ab67616d00001e02d15754c1feb5c3676a0d7c81)
-
-## [Taylor Swift: Snow On The Beach (feat. More Lana Del Rey)](https://open.spotify.com/track/4zmKGsrXjLmljb5fTaBTot)
-![Taylor Swift!](https://i.scdn.co/image/ab67616d00001e02fa747621a53c8e2cc436dee0)
-
-## [Ludovico Einaudi: Lady Labyrinth](https://open.spotify.com/track/5CfhecfOuh8JnaTdO94zhI)
-![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e02ce1a160e20eb09d3f3807acb)
+## [Yann Tiersen: Mother's Journey](https://open.spotify.com/track/35fKXUJk1yDn3LVr6MbSHm)
+![Yann Tiersen!](https://i.scdn.co/image/ab67616d00001e020abfcb9a35c4b084efc287d9)
