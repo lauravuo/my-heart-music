@@ -1,4 +1,4 @@
-My monthly top tracks, updated on 7/7/2023, 1:42:16 AM
+My monthly top tracks, updated on 7/14/2023, 1:44:27 AM
 
 ## [Aki Sirkesalo: Mä Tuun Kotiin](https://open.spotify.com/track/43GEbyFzp0YuztlX37ARjk)
 ![Aki Sirkesalo!](https://i.scdn.co/image/ab67616d00001e02af081858599618166f01ed2a)
@@ -6,20 +6,8 @@ My monthly top tracks, updated on 7/7/2023, 1:42:16 AM
 ## [Anna Puu: Rakkaus tappaa](https://open.spotify.com/track/1v0MVxPYvBYLsS6rQnV9nq)
 ![Anna Puu!](https://i.scdn.co/image/ab67616d00001e02e0dfa42c700047d6478f1c7b)
 
-## [Zaz: L'une ou l'autre](https://open.spotify.com/track/0NfsToB3qHg5gdRvSDOced)
-![Zaz!](https://i.scdn.co/image/ab67616d00001e0263283d96de70d2e6273da91c)
-
-## [Paula Koivuniemi: Mieto väkevä (feat. Tuure Kilpeläinen & Kaihon Karavaani)](https://open.spotify.com/track/0O7pXpQcAWbRWXeFlqnchx)
-![Paula Koivuniemi!](https://i.scdn.co/image/ab67616d00001e020748d5dd53d4d8a7d000b41f)
-
-## [Alessandra: Queen of Kings](https://open.spotify.com/track/14LdhxElpZS0rKVV4nxtdA)
-![Alessandra!](https://i.scdn.co/image/ab67616d00001e022c9eea7700ceb07c4dabf114)
-
 ## [Gal Costa: Nao Identificado](https://open.spotify.com/track/1eqUenDSQsy87cpoogbKvi)
 ![Gal Costa!](https://i.scdn.co/image/ab67616d00001e0295ce0914cbddd405600e1e12)
-
-## [Timo Kiiskinen: Hannan Ja Kertun Häävalssi](https://open.spotify.com/track/4djlaBzpeqrGZP1UbwiFwz)
-![Timo Kiiskinen!](https://i.scdn.co/image/ab67616d00001e02ff2cc5559ebc8a8cd923b277)
 
 ## [Komiat: Iskelmäprinssi laulaa](https://open.spotify.com/track/7HWU2Jfa5pJXzyTNZbgUtn)
 ![Komiat!](https://i.scdn.co/image/ab67616d00001e0295ba2a2b31b88ef35d8fe53a)
@@ -30,20 +18,17 @@ My monthly top tracks, updated on 7/7/2023, 1:42:16 AM
 ## [Sin With Sebastian: Right or Wrong](https://open.spotify.com/track/125f32tCpnhMTF8JQSEQaR)
 ![Sin With Sebastian!](https://i.scdn.co/image/ab67616d00001e0252d9f0f29da6096f98b62603)
 
-## [Aki Sirkesalo: Tule Nyt](https://open.spotify.com/track/2SFXECJHKLKaN6HQilOR26)
-![Aki Sirkesalo!](https://i.scdn.co/image/ab67616d00001e02a68a0be3a9c8373a6b93ad45)
-
-## [ELF: Tarantella Joe](https://open.spotify.com/track/04yQ6iP1nZ5sRxoNTI1f4L)
-![ELF!](https://i.scdn.co/image/ab67616d00001e02e95a33a34fa4740450f9f2b0)
-
-## [Laura Moisio: Ohi ajettiin](https://open.spotify.com/track/06EhsDMQmS5R7OLweWzvRs)
-![Laura Moisio!](https://i.scdn.co/image/ab67616d00001e023bd71d04b15c0af5fc9886fe)
-
 ## [Adele: Love In The Dark](https://open.spotify.com/track/0DuWDLjriRPjDRoPgaCslY)
 ![Adele!](https://i.scdn.co/image/ab67616d00001e027b9888dc365b8f957c63df14)
 
+## [Paula Koivuniemi: Mieto väkevä (feat. Tuure Kilpeläinen & Kaihon Karavaani)](https://open.spotify.com/track/0O7pXpQcAWbRWXeFlqnchx)
+![Paula Koivuniemi!](https://i.scdn.co/image/ab67616d00001e020748d5dd53d4d8a7d000b41f)
+
 ## [Eila Pellinen: Pakoon, pakoon](https://open.spotify.com/track/0wjYHzLvdm5hRGjgmUJ8qH)
 ![Eila Pellinen!](https://i.scdn.co/image/ab67616d00001e0250cc26bf6f13845cf0ea7944)
+
+## [Alessandra: Queen of Kings](https://open.spotify.com/track/14LdhxElpZS0rKVV4nxtdA)
+![Alessandra!](https://i.scdn.co/image/ab67616d00001e022c9eea7700ceb07c4dabf114)
 
 ## [Lord Est: Keski-Suomeen (feat. Meiju Suvas)](https://open.spotify.com/track/1OlZb9YC70JTVSAMi2YcY8)
 ![Lord Est!](https://i.scdn.co/image/ab67616d00001e029ca45148082c1a924e768f80)
@@ -59,3 +44,18 @@ My monthly top tracks, updated on 7/7/2023, 1:42:16 AM
 
 ## [Yann Tiersen: Mother's Journey](https://open.spotify.com/track/35fKXUJk1yDn3LVr6MbSHm)
 ![Yann Tiersen!](https://i.scdn.co/image/ab67616d00001e020abfcb9a35c4b084efc287d9)
+
+## [Aki Sirkesalo: Talismaani](https://open.spotify.com/track/3IN10cxlmXkMR4CF7XZbzh)
+![Aki Sirkesalo!](https://i.scdn.co/image/ab67616d00001e02d4de5547da982a892091aff5)
+
+## [Adele: Set Fire to the Rain](https://open.spotify.com/track/3di5hcvxxciiqwMH1jarhY)
+![Adele!](https://i.scdn.co/image/ab67616d00001e02164feb363334f93b6458d2a9)
+
+## [Paula Koivuniemi: Aikaan sinikellojen](https://open.spotify.com/track/41EZGxL6Ye3FtSA7K8W4o3)
+![Paula Koivuniemi!](https://i.scdn.co/image/ab67616d00001e020fca8becd15798e3e1bceee2)
+
+## [Absolutely Fabulous: Absolutely Fabulous - Single Version; 2018 Remaster](https://open.spotify.com/track/44RuG8ZT3NoRGHnrNNkvRa)
+![Absolutely Fabulous!](https://i.scdn.co/image/ab67616d00001e02c6e7d837db9ad25e0beb42b0)
+
+## [Timo Kiiskinen: Hannan Ja Kertun Häävalssi](https://open.spotify.com/track/4djlaBzpeqrGZP1UbwiFwz)
+![Timo Kiiskinen!](https://i.scdn.co/image/ab67616d00001e02ff2cc5559ebc8a8cd923b277)
