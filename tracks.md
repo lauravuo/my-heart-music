@@ -1,10 +1,7 @@
-My monthly top tracks, updated on 7/14/2023, 1:44:27 AM
+My monthly top tracks, updated on 7/21/2023, 1:20:32 AM
 
 ## [Aki Sirkesalo: Mä Tuun Kotiin](https://open.spotify.com/track/43GEbyFzp0YuztlX37ARjk)
 ![Aki Sirkesalo!](https://i.scdn.co/image/ab67616d00001e02af081858599618166f01ed2a)
-
-## [Anna Puu: Rakkaus tappaa](https://open.spotify.com/track/1v0MVxPYvBYLsS6rQnV9nq)
-![Anna Puu!](https://i.scdn.co/image/ab67616d00001e02e0dfa42c700047d6478f1c7b)
 
 ## [Gal Costa: Nao Identificado](https://open.spotify.com/track/1eqUenDSQsy87cpoogbKvi)
 ![Gal Costa!](https://i.scdn.co/image/ab67616d00001e0295ce0914cbddd405600e1e12)
@@ -12,32 +9,35 @@ My monthly top tracks, updated on 7/14/2023, 1:44:27 AM
 ## [Komiat: Iskelmäprinssi laulaa](https://open.spotify.com/track/7HWU2Jfa5pJXzyTNZbgUtn)
 ![Komiat!](https://i.scdn.co/image/ab67616d00001e0295ba2a2b31b88ef35d8fe53a)
 
+## [Saija Varjus: Pimeyden tango](https://open.spotify.com/track/7ieYOUxupewTRvyndHtIqB)
+![Saija Varjus!](https://i.scdn.co/image/ab67616d00001e021ee534b75951bdce52546bb6)
+
 ## [P!nk: Dear Mr. President - Live At Q Music](https://open.spotify.com/track/094XuBM7LzHtyh6cIHJkpd)
 ![P!nk!](https://i.scdn.co/image/ab67616d00001e02cb6c2cbf127adfc8354b4c7d)
 
 ## [Sin With Sebastian: Right or Wrong](https://open.spotify.com/track/125f32tCpnhMTF8JQSEQaR)
 ![Sin With Sebastian!](https://i.scdn.co/image/ab67616d00001e0252d9f0f29da6096f98b62603)
 
+## [Aki Sirkesalo: Melkein Onnellinen](https://open.spotify.com/track/7k6SMrDhiQcyOFJLRwcizi)
+![Aki Sirkesalo!](https://i.scdn.co/image/ab67616d00001e021508f1c178fc26c0da401519)
+
 ## [Adele: Love In The Dark](https://open.spotify.com/track/0DuWDLjriRPjDRoPgaCslY)
 ![Adele!](https://i.scdn.co/image/ab67616d00001e027b9888dc365b8f957c63df14)
-
-## [Paula Koivuniemi: Mieto väkevä (feat. Tuure Kilpeläinen & Kaihon Karavaani)](https://open.spotify.com/track/0O7pXpQcAWbRWXeFlqnchx)
-![Paula Koivuniemi!](https://i.scdn.co/image/ab67616d00001e020748d5dd53d4d8a7d000b41f)
 
 ## [Eila Pellinen: Pakoon, pakoon](https://open.spotify.com/track/0wjYHzLvdm5hRGjgmUJ8qH)
 ![Eila Pellinen!](https://i.scdn.co/image/ab67616d00001e0250cc26bf6f13845cf0ea7944)
 
-## [Alessandra: Queen of Kings](https://open.spotify.com/track/14LdhxElpZS0rKVV4nxtdA)
-![Alessandra!](https://i.scdn.co/image/ab67616d00001e022c9eea7700ceb07c4dabf114)
-
-## [Lord Est: Keski-Suomeen (feat. Meiju Suvas)](https://open.spotify.com/track/1OlZb9YC70JTVSAMi2YcY8)
-![Lord Est!](https://i.scdn.co/image/ab67616d00001e029ca45148082c1a924e768f80)
-
 ## [Orvokki: Tyhjäpää](https://open.spotify.com/track/1rHo698L03B0W146V4iAmv)
 ![Orvokki!](https://i.scdn.co/image/ab67616d00001e02ba4f775c821aafd4de269edb)
 
+## [Anna Puu: Rakkaus tappaa](https://open.spotify.com/track/1v0MVxPYvBYLsS6rQnV9nq)
+![Anna Puu!](https://i.scdn.co/image/ab67616d00001e02e0dfa42c700047d6478f1c7b)
+
 ## [The 5th Dimension: Stoned Soul Picnic - Remastered 2000](https://open.spotify.com/track/23OBcAyQonpaJ2XswR0k1I)
 ![The 5th Dimension!](https://i.scdn.co/image/ab67616d00001e02b6c5579fca6375b4a01518e1)
+
+## [Laila Kinnunen: Kesäyö Palmassa](https://open.spotify.com/track/2U0XpwVbVShpj3y817IbDY)
+![Laila Kinnunen!](https://i.scdn.co/image/ab67616d00001e02d09c2134201759feec63dc5f)
 
 ## [Liisa Akimof: Ajatus tulee, ajatus menee](https://open.spotify.com/track/2dKmmIdX8wmF8pWq9YyFWr)
 ![Liisa Akimof!](https://i.scdn.co/image/ab67616d00001e021735263130519ba3038109b8)
