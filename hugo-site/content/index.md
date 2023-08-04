@@ -1,16 +1,7 @@
-My monthly top tracks, updated on 7/28/2023, 1:12:25 AM
+My monthly top tracks, updated on 8/4/2023, 1:15:19 AM
 
 ## [Saija Varjus: Pimeyden tango](https://open.spotify.com/track/7ieYOUxupewTRvyndHtIqB)
 ![Saija Varjus!](https://i.scdn.co/image/ab67616d00001e021ee534b75951bdce52546bb6)
-
-## [P!nk: Dear Mr. President - Live At Q Music](https://open.spotify.com/track/094XuBM7LzHtyh6cIHJkpd)
-![P!nk!](https://i.scdn.co/image/ab67616d00001e02cb6c2cbf127adfc8354b4c7d)
-
-## [Sin With Sebastian: Right or Wrong](https://open.spotify.com/track/125f32tCpnhMTF8JQSEQaR)
-![Sin With Sebastian!](https://i.scdn.co/image/ab67616d00001e0252d9f0f29da6096f98b62603)
-
-## [Sir Elwoodin hiljaiset värit: Vanha Valokuva](https://open.spotify.com/track/1gRp4DRA2AgMwJvE5Jp9qm)
-![Sir Elwoodin hiljaiset värit!](https://i.scdn.co/image/ab67616d00001e0210b1166616159891fc28aee5)
 
 ## [ABBA: Eagle](https://open.spotify.com/track/03BqDZmqex6IzC6Mxw8m2o)
 ![ABBA!](https://i.scdn.co/image/ab67616d00001e02ec5de82891e542d4877c6d98)
@@ -33,8 +24,8 @@ My monthly top tracks, updated on 7/28/2023, 1:12:25 AM
 ## [Adele: Hello](https://open.spotify.com/track/1Yk0cQdMLx5RzzFTYwmuld)
 ![Adele!](https://i.scdn.co/image/ab67616d00001e027b9888dc365b8f957c63df14)
 
-## [Anna Puu: Rakkaus tappaa](https://open.spotify.com/track/1v0MVxPYvBYLsS6rQnV9nq)
-![Anna Puu!](https://i.scdn.co/image/ab67616d00001e02e0dfa42c700047d6478f1c7b)
+## [Sir Elwoodin hiljaiset värit: Vanha Valokuva](https://open.spotify.com/track/1gRp4DRA2AgMwJvE5Jp9qm)
+![Sir Elwoodin hiljaiset värit!](https://i.scdn.co/image/ab67616d00001e0210b1166616159891fc28aee5)
 
 ## [The James Hunter Six: Nick of Time](https://open.spotify.com/track/2HmFHBLb23995eT1JOYC3W)
 ![The James Hunter Six!](https://i.scdn.co/image/ab67616d00001e0202253476eefe4ea6af5676b6)
@@ -48,14 +39,23 @@ My monthly top tracks, updated on 7/28/2023, 1:12:25 AM
 ## [Kaija Koo: Läpinäkyvää](https://open.spotify.com/track/2hlsy6S5WNwzNPjQ5AgiDj)
 ![Kaija Koo!](https://i.scdn.co/image/ab67616d00001e02b2f1d98a03707e4f384038ef)
 
+## [Whitney Houston: I Wanna Dance with Somebody (Who Loves Me)](https://open.spotify.com/track/2tUBqZG2AbRi7Q0BIrVrEj)
+![Whitney Houston!](https://i.scdn.co/image/ab67616d00001e02cc57e9b00b87dd0f6e868347)
+
 ## [ABREU: Teipillä tai rakkaudella](https://open.spotify.com/track/2vdsyiA0RcYs3C9VMnmYac)
 ![ABREU!](https://i.scdn.co/image/ab67616d00001e023a24aabe6c5e241d13c97f8f)
 
 ## [ABBA: I've Been Waiting For You](https://open.spotify.com/track/3F2sMDeuhueiBpDqEbRhCF)
 ![ABBA!](https://i.scdn.co/image/ab67616d00001e0292d0747a634fcc351c6ac3c2)
 
-## [Absolutely Fabulous: Absolutely Fabulous - Single Version; 2018 Remaster](https://open.spotify.com/track/44RuG8ZT3NoRGHnrNNkvRa)
-![Absolutely Fabulous!](https://i.scdn.co/image/ab67616d00001e02c6e7d837db9ad25e0beb42b0)
+## [JVG: Ikuinen vappu](https://open.spotify.com/track/4ycKgmGOtvuJZVPyvBpVVU)
+![JVG!](https://i.scdn.co/image/ab67616d00001e0245ca5925da8c516c3c32f980)
 
-## [Timo Kiiskinen: Hannan Ja Kertun Häävalssi](https://open.spotify.com/track/4djlaBzpeqrGZP1UbwiFwz)
-![Timo Kiiskinen!](https://i.scdn.co/image/ab67616d00001e02ff2cc5559ebc8a8cd923b277)
+## [Maarit: Istun tässä pöydässä taas - Sittin' on the Dock of the Bay](https://open.spotify.com/track/57RuupDcnXAUnnwCwMgC0D)
+![Maarit!](https://i.scdn.co/image/ab67616d00001e0201f3412e45d2cac2b231d6ed)
+
+## [Sister Sledge: If You Really Want Me](https://open.spotify.com/track/58nFjce1qbe9YzUmi3UOUQ)
+![Sister Sledge!](https://i.scdn.co/image/ab67616d00001e02e0e9efa45d4b1d2554a9f0cf)
+
+## [Gasellit: Laulu ilman sanoja (feat. ABREU)](https://open.spotify.com/track/5U6DBJXCpgbwDirAYukeHo)
+![Gasellit!](https://i.scdn.co/image/ab67616d00001e02c573a136100da4b38d5dbe38)
