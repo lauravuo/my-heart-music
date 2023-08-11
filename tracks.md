@@ -1,4 +1,4 @@
-My monthly top tracks, updated on 8/4/2023, 1:15:19 AM
+My monthly top tracks, updated on 8/11/2023, 1:00:54 AM
 
 ## [Saija Varjus: Pimeyden tango](https://open.spotify.com/track/7ieYOUxupewTRvyndHtIqB)
 ![Saija Varjus!](https://i.scdn.co/image/ab67616d00001e021ee534b75951bdce52546bb6)
@@ -8,6 +8,9 @@ My monthly top tracks, updated on 8/4/2023, 1:15:19 AM
 
 ## [The Bo-Keys: Writing on the Wall](https://open.spotify.com/track/0DAmvNo3LWF3Z0DlYJfuOS)
 ![The Bo-Keys!](https://i.scdn.co/image/ab67616d00001e02ce6da749de047d6da2b2d8ca)
+
+## [a-ha: The Sun Always Shines on T.V.](https://open.spotify.com/track/0HoaLXRp7jJtdQFunUyUGc)
+![a-ha!](https://i.scdn.co/image/ab67616d00001e02e8dd4db47e7177c63b0b7d53)
 
 ## [ABREU: Yhen elämän juttu](https://open.spotify.com/track/0IXLyheDMnOQ4mmTrScjAR)
 ![ABREU!](https://i.scdn.co/image/ab67616d00001e025388e337644e1d5af70b1083)
@@ -48,14 +51,11 @@ My monthly top tracks, updated on 8/4/2023, 1:15:19 AM
 ## [ABBA: I've Been Waiting For You](https://open.spotify.com/track/3F2sMDeuhueiBpDqEbRhCF)
 ![ABBA!](https://i.scdn.co/image/ab67616d00001e0292d0747a634fcc351c6ac3c2)
 
+## [Fredi: Muukalainen - Starman](https://open.spotify.com/track/4GHhr1bg1YH8aWYHcdW3xz)
+![Fredi!](https://i.scdn.co/image/ab67616d00001e024513caadbf2541acd9c9920c)
+
+## [The War On Drugs: Thinking of a Place](https://open.spotify.com/track/4Sd5tbNP4q8wS64abqwfkN)
+![The War On Drugs!](https://i.scdn.co/image/ab67616d00001e021cf9827de8b8dbc2fbc16f65)
+
 ## [JVG: Ikuinen vappu](https://open.spotify.com/track/4ycKgmGOtvuJZVPyvBpVVU)
 ![JVG!](https://i.scdn.co/image/ab67616d00001e0245ca5925da8c516c3c32f980)
-
-## [Maarit: Istun tässä pöydässä taas - Sittin' on the Dock of the Bay](https://open.spotify.com/track/57RuupDcnXAUnnwCwMgC0D)
-![Maarit!](https://i.scdn.co/image/ab67616d00001e0201f3412e45d2cac2b231d6ed)
-
-## [Sister Sledge: If You Really Want Me](https://open.spotify.com/track/58nFjce1qbe9YzUmi3UOUQ)
-![Sister Sledge!](https://i.scdn.co/image/ab67616d00001e02e0e9efa45d4b1d2554a9f0cf)
-
-## [Gasellit: Laulu ilman sanoja (feat. ABREU)](https://open.spotify.com/track/5U6DBJXCpgbwDirAYukeHo)
-![Gasellit!](https://i.scdn.co/image/ab67616d00001e02c573a136100da4b38d5dbe38)
