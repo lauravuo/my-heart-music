@@ -1,61 +1,61 @@
-My monthly top tracks, updated on 8/18/2023, 1:01:07 AM
+My monthly top tracks, updated on 8/25/2023, 1:02:56 AM
 
-## [ABBA: Eagle](https://open.spotify.com/track/03BqDZmqex6IzC6Mxw8m2o)
-![ABBA!](https://i.scdn.co/image/ab67616d00001e02ec5de82891e542d4877c6d98)
+## [Air: Ce matin-là - From "L'uomo in più"](https://open.spotify.com/track/7yieArGOFIdoGJv1V8hDr2)
+![Air!](https://i.scdn.co/image/ab67616d00001e021036fcd9b08c3fe598ef2883)
 
-## [a-ha: The Sun Always Shines on T.V.](https://open.spotify.com/track/0HoaLXRp7jJtdQFunUyUGc)
-![a-ha!](https://i.scdn.co/image/ab67616d00001e02e8dd4db47e7177c63b0b7d53)
-
-## [ABREU: Yhen elämän juttu](https://open.spotify.com/track/0IXLyheDMnOQ4mmTrScjAR)
-![ABREU!](https://i.scdn.co/image/ab67616d00001e025388e337644e1d5af70b1083)
-
-## [Paula Koivuniemi: Luotan sydämen ääneen - Let Me Sing](https://open.spotify.com/track/0wxW5oIXhzfB5VJfWNL4zR)
-![Paula Koivuniemi!](https://i.scdn.co/image/ab67616d00001e020fca8becd15798e3e1bceee2)
-
-## [Sir Elwoodin hiljaiset värit: Vanha Valokuva](https://open.spotify.com/track/1gRp4DRA2AgMwJvE5Jp9qm)
-![Sir Elwoodin hiljaiset värit!](https://i.scdn.co/image/ab67616d00001e0210b1166616159891fc28aee5)
-
-## [Teflon Brothers: Seksikkäin jäbä](https://open.spotify.com/track/2Ynd1BuOdfrGFU1HgW5fXJ)
-![Teflon Brothers!](https://i.scdn.co/image/ab67616d00001e02492fbe5fc5ba4c7304841e87)
-
-## [Kaija Koo: Läpinäkyvää](https://open.spotify.com/track/2hlsy6S5WNwzNPjQ5AgiDj)
-![Kaija Koo!](https://i.scdn.co/image/ab67616d00001e02b2f1d98a03707e4f384038ef)
-
-## [Whitney Houston: I Wanna Dance with Somebody (Who Loves Me)](https://open.spotify.com/track/2tUBqZG2AbRi7Q0BIrVrEj)
-![Whitney Houston!](https://i.scdn.co/image/ab67616d00001e02cc57e9b00b87dd0f6e868347)
-
-## [ABBA: I've Been Waiting For You](https://open.spotify.com/track/3F2sMDeuhueiBpDqEbRhCF)
-![ABBA!](https://i.scdn.co/image/ab67616d00001e0292d0747a634fcc351c6ac3c2)
-
-## [Fredi: Muukalainen - Starman](https://open.spotify.com/track/4GHhr1bg1YH8aWYHcdW3xz)
-![Fredi!](https://i.scdn.co/image/ab67616d00001e024513caadbf2541acd9c9920c)
-
-## [JVG: Ikuinen vappu](https://open.spotify.com/track/4ycKgmGOtvuJZVPyvBpVVU)
-![JVG!](https://i.scdn.co/image/ab67616d00001e0245ca5925da8c516c3c32f980)
-
-## [Maarit: Istun tässä pöydässä taas - Sittin' on the Dock of the Bay](https://open.spotify.com/track/57RuupDcnXAUnnwCwMgC0D)
-![Maarit!](https://i.scdn.co/image/ab67616d00001e0201f3412e45d2cac2b231d6ed)
-
-## [Gasellit: Laulu ilman sanoja (feat. ABREU)](https://open.spotify.com/track/5U6DBJXCpgbwDirAYukeHo)
-![Gasellit!](https://i.scdn.co/image/ab67616d00001e02c573a136100da4b38d5dbe38)
-
-## [Litku Klemetti: Hullu rakkauden morsian](https://open.spotify.com/track/5iwqY2bHv7t3t0t0YiPkSm)
-![Litku Klemetti!](https://i.scdn.co/image/ab67616d00001e0225a272f2ecce83344adc5f42)
+## [Litku Klemetti: Villit lupiinit](https://open.spotify.com/track/00KqHDooxFTru1y6vOaxQ0)
+![Litku Klemetti!](https://i.scdn.co/image/ab67616d00001e027facdbe26a978a7e8420a952)
 
 ## [The Smiths: Cemetry Gates - 2011 Remaster](https://open.spotify.com/track/03yOjwHoOPDlTUg0NRxN6t)
 ![The Smiths!](https://i.scdn.co/image/ab67616d00001e02ada101c2e9e97feb8fae37a9)
 
-## [Juanes: Dancing In The Dark](https://open.spotify.com/track/05cV3dgJQiuBVCipuSpckU)
-![Juanes!](https://i.scdn.co/image/ab67616d00001e02b879f11e2f16d95df017a023)
+## [Seija Simola: Ihanaa se ois - Samba de verao](https://open.spotify.com/track/09ytU3stwkDnaHcFgWvnhs)
+![Seija Simola!](https://i.scdn.co/image/ab67616d00001e0267401be2c3058f2ede51253c)
 
-## [Meiju Suvas: Tää onnea on - Maria No Mas](https://open.spotify.com/track/08yKuvs5giiYCSqpEatti2)
-![Meiju Suvas!](https://i.scdn.co/image/ab67616d00001e02a5178203ce3a36e8ac875b4a)
+## [a-ha: The Sun Always Shines on T.V.](https://open.spotify.com/track/0HoaLXRp7jJtdQFunUyUGc)
+![a-ha!](https://i.scdn.co/image/ab67616d00001e02e8dd4db47e7177c63b0b7d53)
 
-## [Liila Jokelin: Kauneimmat helmet](https://open.spotify.com/track/0AeBA4qCsmwDqJbLjWqfIM)
-![Liila Jokelin!](https://i.scdn.co/image/ab67616d00001e025dc78d76bdda36a4720edd2a)
+## [Monica Zetterlund: Monicas vals](https://open.spotify.com/track/0P0lgWxM39ZSJE3u9nsikD)
+![Monica Zetterlund!](https://i.scdn.co/image/ab67616d00001e02a4e6d8633c7f37f127d66f8e)
 
-## [Maarit: Tuskan tanssi - Live](https://open.spotify.com/track/0CW8Y7f36bL38Y0FjnJFGv)
-![Maarit!](https://i.scdn.co/image/ab67616d00001e02f4f55dd2c4092f84f152b968)
+## [Monica Zetterlund: I Can't Give You Anything But Love](https://open.spotify.com/track/0QpIXiEeziy7SYf85KH0z6)
+![Monica Zetterlund!](https://i.scdn.co/image/ab67616d00001e0233cb267657c4ff8f172605dd)
 
-## [Rufus Wainwright: Heading for Home (feat. John Legend)](https://open.spotify.com/track/0LfxVKa6cf6HN5htCm9V89)
-![Rufus Wainwright!](https://i.scdn.co/image/ab67616d00001e020abcc90c267bf8bb9c10a50d)
+## [Lyyti: Omakuva](https://open.spotify.com/track/0XMcpsa4y6sGahCMTTBosU)
+![Lyyti!](https://i.scdn.co/image/ab67616d00001e025ae570df1c15e3d6db12df76)
+
+## [Hermanos Gutiérrez: Tres Hermanos](https://open.spotify.com/track/0cb9Ov9eC2eFxac6bCcUZl)
+![Hermanos Gutiérrez!](https://i.scdn.co/image/ab67616d00001e025e0ab921ce5b7f840e29de33)
+
+## [Monica Zetterlund: Gröna små äpplen](https://open.spotify.com/track/0dtE42FDoz08Aa9i7EWUI2)
+![Monica Zetterlund!](https://i.scdn.co/image/ab67616d00001e02a9db86fbb61e5eed80bf2d37)
+
+## [Kim Borg: Nuoren miehen lauantai](https://open.spotify.com/track/0hn4vlwVUyhT5SSqjFXUnN)
+![Kim Borg!](https://i.scdn.co/image/ab67616d00001e020a08e4d2cf6a91595a8ff253)
+
+## [Annikki Tähti: Samum](https://open.spotify.com/track/0kCAZhebaY2vslpDMok49Q)
+![Annikki Tähti!](https://i.scdn.co/image/ab67616d00001e02872f31d5f9a275399be037a2)
+
+## [Vilma Talvitie: Laulaja vailla ääntä](https://open.spotify.com/track/0kDem2aDbshTIWAi9T7dkY)
+![Vilma Talvitie!](https://i.scdn.co/image/ab67616d00001e022c1c78d7f2959b6898a8c180)
+
+## [Eila Pellinen: Pakoon, pakoon](https://open.spotify.com/track/0wjYHzLvdm5hRGjgmUJ8qH)
+![Eila Pellinen!](https://i.scdn.co/image/ab67616d00001e0250cc26bf6f13845cf0ea7944)
+
+## [The Housemartins: I Smell Winter](https://open.spotify.com/track/11hWrozpQFW3D6SpRm1grL)
+![The Housemartins!](https://i.scdn.co/image/ab67616d00001e022e8ba6258f16761e329fbee1)
+
+## [The Beach Boys: I Just Wasn't Made For These Times](https://open.spotify.com/track/1936vFNafyF15O6dqbpBYJ)
+![The Beach Boys!](https://i.scdn.co/image/ab67616d00001e02bde8dfd1922129f3d9e3732f)
+
+## [Joy Crookes: Feet Don't Fail Me Now](https://open.spotify.com/track/1GVkrFVc94CTjm9bdSmGjp)
+![Joy Crookes!](https://i.scdn.co/image/ab67616d00001e027e8ad485a6ed4febebc49311)
+
+## [Blondie: Sunday Girl](https://open.spotify.com/track/1e1rq2wEC9hOro9YhHmL2B)
+![Blondie!](https://i.scdn.co/image/ab67616d00001e02ebc918cfb51e9ced7349f436)
+
+## [Gal Costa: Nao Identificado](https://open.spotify.com/track/1eqUenDSQsy87cpoogbKvi)
+![Gal Costa!](https://i.scdn.co/image/ab67616d00001e0295ce0914cbddd405600e1e12)
+
+## [Kate Bush: Wow](https://open.spotify.com/track/1hbB7wFZ28n5vOfMEEY2Jw)
+![Kate Bush!](https://i.scdn.co/image/ab67616d00001e0287b9051fea7e0f99f7225234)
