@@ -1,4 +1,4 @@
-My monthly top tracks, updated on 8/25/2023, 1:02:56 AM
+My monthly top tracks, updated on 9/1/2023, 1:07:09 AM
 
 ## [Air: Ce matin-là - From "L'uomo in più"](https://open.spotify.com/track/7yieArGOFIdoGJv1V8hDr2)
 ![Air!](https://i.scdn.co/image/ab67616d00001e021036fcd9b08c3fe598ef2883)
@@ -9,26 +9,26 @@ My monthly top tracks, updated on 8/25/2023, 1:02:56 AM
 ## [The Smiths: Cemetry Gates - 2011 Remaster](https://open.spotify.com/track/03yOjwHoOPDlTUg0NRxN6t)
 ![The Smiths!](https://i.scdn.co/image/ab67616d00001e02ada101c2e9e97feb8fae37a9)
 
+## [Meiju Suvas: Tää onnea on - Maria No Mas](https://open.spotify.com/track/08yKuvs5giiYCSqpEatti2)
+![Meiju Suvas!](https://i.scdn.co/image/ab67616d00001e02a5178203ce3a36e8ac875b4a)
+
 ## [Seija Simola: Ihanaa se ois - Samba de verao](https://open.spotify.com/track/09ytU3stwkDnaHcFgWvnhs)
 ![Seija Simola!](https://i.scdn.co/image/ab67616d00001e0267401be2c3058f2ede51253c)
 
 ## [a-ha: The Sun Always Shines on T.V.](https://open.spotify.com/track/0HoaLXRp7jJtdQFunUyUGc)
 ![a-ha!](https://i.scdn.co/image/ab67616d00001e02e8dd4db47e7177c63b0b7d53)
 
-## [Monica Zetterlund: Monicas vals](https://open.spotify.com/track/0P0lgWxM39ZSJE3u9nsikD)
-![Monica Zetterlund!](https://i.scdn.co/image/ab67616d00001e02a4e6d8633c7f37f127d66f8e)
-
-## [Monica Zetterlund: I Can't Give You Anything But Love](https://open.spotify.com/track/0QpIXiEeziy7SYf85KH0z6)
-![Monica Zetterlund!](https://i.scdn.co/image/ab67616d00001e0233cb267657c4ff8f172605dd)
-
 ## [Lyyti: Omakuva](https://open.spotify.com/track/0XMcpsa4y6sGahCMTTBosU)
 ![Lyyti!](https://i.scdn.co/image/ab67616d00001e025ae570df1c15e3d6db12df76)
 
+## [ABREU: Sytyn](https://open.spotify.com/track/0bup6XzvVJUL8wKUI0P1AP)
+![ABREU!](https://i.scdn.co/image/ab67616d00001e023a24aabe6c5e241d13c97f8f)
+
+## [Katri Helena: Onnen onkija](https://open.spotify.com/track/0c5YBavBvDoEz453qYwiMv)
+![Katri Helena!](https://i.scdn.co/image/ab67616d00001e029d036f82e25e0ee9159478b6)
+
 ## [Hermanos Gutiérrez: Tres Hermanos](https://open.spotify.com/track/0cb9Ov9eC2eFxac6bCcUZl)
 ![Hermanos Gutiérrez!](https://i.scdn.co/image/ab67616d00001e025e0ab921ce5b7f840e29de33)
-
-## [Monica Zetterlund: Gröna små äpplen](https://open.spotify.com/track/0dtE42FDoz08Aa9i7EWUI2)
-![Monica Zetterlund!](https://i.scdn.co/image/ab67616d00001e02a9db86fbb61e5eed80bf2d37)
 
 ## [Kim Borg: Nuoren miehen lauantai](https://open.spotify.com/track/0hn4vlwVUyhT5SSqjFXUnN)
 ![Kim Borg!](https://i.scdn.co/image/ab67616d00001e020a08e4d2cf6a91595a8ff253)
@@ -39,23 +39,23 @@ My monthly top tracks, updated on 8/25/2023, 1:02:56 AM
 ## [Vilma Talvitie: Laulaja vailla ääntä](https://open.spotify.com/track/0kDem2aDbshTIWAi9T7dkY)
 ![Vilma Talvitie!](https://i.scdn.co/image/ab67616d00001e022c1c78d7f2959b6898a8c180)
 
+## [Katri Helena: Äänesi mä kuulen](https://open.spotify.com/track/0mT6Cdji6exsd0zHUEKWT4)
+![Katri Helena!](https://i.scdn.co/image/ab67616d00001e021b775d93ec1d12650eccb62b)
+
+## [Sir Elwoodin hiljaiset värit: Mustasukkaisuus](https://open.spotify.com/track/0s1WdrDFevgKGCjmcBbe6n)
+![Sir Elwoodin hiljaiset värit!](https://i.scdn.co/image/ab67616d00001e0248e4278a45965dea8681458f)
+
 ## [Eila Pellinen: Pakoon, pakoon](https://open.spotify.com/track/0wjYHzLvdm5hRGjgmUJ8qH)
 ![Eila Pellinen!](https://i.scdn.co/image/ab67616d00001e0250cc26bf6f13845cf0ea7944)
+
+## [Paula Koivuniemi: Luotan sydämen ääneen - Let Me Sing](https://open.spotify.com/track/0wxW5oIXhzfB5VJfWNL4zR)
+![Paula Koivuniemi!](https://i.scdn.co/image/ab67616d00001e020fca8becd15798e3e1bceee2)
 
 ## [The Housemartins: I Smell Winter](https://open.spotify.com/track/11hWrozpQFW3D6SpRm1grL)
 ![The Housemartins!](https://i.scdn.co/image/ab67616d00001e022e8ba6258f16761e329fbee1)
 
+## [ABBA: Voulez-Vous](https://open.spotify.com/track/17OqI90oTFZ3J8PVu6j07V)
+![ABBA!](https://i.scdn.co/image/ab67616d00001e02aa22899360d8ba6704732dec)
+
 ## [The Beach Boys: I Just Wasn't Made For These Times](https://open.spotify.com/track/1936vFNafyF15O6dqbpBYJ)
 ![The Beach Boys!](https://i.scdn.co/image/ab67616d00001e02bde8dfd1922129f3d9e3732f)
-
-## [Joy Crookes: Feet Don't Fail Me Now](https://open.spotify.com/track/1GVkrFVc94CTjm9bdSmGjp)
-![Joy Crookes!](https://i.scdn.co/image/ab67616d00001e027e8ad485a6ed4febebc49311)
-
-## [Blondie: Sunday Girl](https://open.spotify.com/track/1e1rq2wEC9hOro9YhHmL2B)
-![Blondie!](https://i.scdn.co/image/ab67616d00001e02ebc918cfb51e9ced7349f436)
-
-## [Gal Costa: Nao Identificado](https://open.spotify.com/track/1eqUenDSQsy87cpoogbKvi)
-![Gal Costa!](https://i.scdn.co/image/ab67616d00001e0295ce0914cbddd405600e1e12)
-
-## [Kate Bush: Wow](https://open.spotify.com/track/1hbB7wFZ28n5vOfMEEY2Jw)
-![Kate Bush!](https://i.scdn.co/image/ab67616d00001e0287b9051fea7e0f99f7225234)
