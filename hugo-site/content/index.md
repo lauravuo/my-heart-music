@@ -1,22 +1,43 @@
-My monthly top tracks, updated on 9/1/2023, 1:07:09 AM
+My monthly top tracks, updated on 9/8/2023, 1:03:47 AM
 
-## [Air: Ce matin-là - From "L'uomo in più"](https://open.spotify.com/track/7yieArGOFIdoGJv1V8hDr2)
-![Air!](https://i.scdn.co/image/ab67616d00001e021036fcd9b08c3fe598ef2883)
+## [Topi Sorsakoski & Agents: Lyhdyn nään syttyvän - Blue chateau](https://open.spotify.com/track/4VnbhCj4w6oTFeN9EPfztP)
+![Topi Sorsakoski & Agents!](https://i.scdn.co/image/ab67616d00001e02410ea163bcaed84cde2c3e62)
+
+## [Topi Sorsakoski & Agents: Kirje -My Boyfriend- - Remaster 2007](https://open.spotify.com/track/2sQdOZslegjYLgfAA7IqNI)
+![Topi Sorsakoski & Agents!](https://i.scdn.co/image/ab67616d00001e02073628794967b1d240b9f94a)
+
+## [Sandra: In The Heat Of The Night](https://open.spotify.com/track/0MSAWjq5aWfTUNL9hv7Epd)
+![Sandra!](https://i.scdn.co/image/ab67616d00001e02605bafbd3a7bf46d22bf51d9)
+
+## [Vesala: Nyt on lähtö](https://open.spotify.com/track/2tYDR0h6i8KuWDJoYPlyj0)
+![Vesala!](https://i.scdn.co/image/ab67616d00001e023372aab2bcd5891c12d766ee)
+
+## [Vesala: Muitaki ihmisii](https://open.spotify.com/track/30Z7Ui20Su1ygdeHja00qZ)
+![Vesala!](https://i.scdn.co/image/ab67616d00001e025d714be75b515528a586df0d)
+
+## [Vesala: Sinuun minä jään](https://open.spotify.com/track/6NAmltAowEnfPR3RKlcbu9)
+![Vesala!](https://i.scdn.co/image/ab67616d00001e025d714be75b515528a586df0d)
+
+## [Michael Nyman: Lost And Found](https://open.spotify.com/track/6PUBzTDK8uOb1rOtNZXYeG)
+![Michael Nyman!](https://i.scdn.co/image/ab67616d00001e0282f80bc680463b2059c5826d)
+
+## [Vesala: Ei pystyny hengittää](https://open.spotify.com/track/6PvU77TNPrmBD3OYvJDSXo)
+![Vesala!](https://i.scdn.co/image/ab67616d00001e023441a0f1d2ab9413b234f53d)
+
+## [Vesala: Miks pitää itkeä (feat. Aali)](https://open.spotify.com/track/6hyJhnQGx5vfiCW2RE09oT)
+![Vesala!](https://i.scdn.co/image/ab67616d00001e02c7749b636a4699d0191fac63)
+
+## [Kaija Kärkinen & Ile Kallio: Menen tähän tuuleen - Live at Sellosali, 3.9.2022](https://open.spotify.com/track/2Wm0B8nIC7scZczMX6Ct3Y)
+![Kaija Kärkinen & Ile Kallio!](https://i.scdn.co/image/ab67616d00001e02f4a778a970a73fa38e13d822)
 
 ## [Litku Klemetti: Villit lupiinit](https://open.spotify.com/track/00KqHDooxFTru1y6vOaxQ0)
 ![Litku Klemetti!](https://i.scdn.co/image/ab67616d00001e027facdbe26a978a7e8420a952)
-
-## [The Smiths: Cemetry Gates - 2011 Remaster](https://open.spotify.com/track/03yOjwHoOPDlTUg0NRxN6t)
-![The Smiths!](https://i.scdn.co/image/ab67616d00001e02ada101c2e9e97feb8fae37a9)
 
 ## [Meiju Suvas: Tää onnea on - Maria No Mas](https://open.spotify.com/track/08yKuvs5giiYCSqpEatti2)
 ![Meiju Suvas!](https://i.scdn.co/image/ab67616d00001e02a5178203ce3a36e8ac875b4a)
 
 ## [Seija Simola: Ihanaa se ois - Samba de verao](https://open.spotify.com/track/09ytU3stwkDnaHcFgWvnhs)
 ![Seija Simola!](https://i.scdn.co/image/ab67616d00001e0267401be2c3058f2ede51253c)
-
-## [a-ha: The Sun Always Shines on T.V.](https://open.spotify.com/track/0HoaLXRp7jJtdQFunUyUGc)
-![a-ha!](https://i.scdn.co/image/ab67616d00001e02e8dd4db47e7177c63b0b7d53)
 
 ## [Lyyti: Omakuva](https://open.spotify.com/track/0XMcpsa4y6sGahCMTTBosU)
 ![Lyyti!](https://i.scdn.co/image/ab67616d00001e025ae570df1c15e3d6db12df76)
@@ -30,9 +51,6 @@ My monthly top tracks, updated on 9/1/2023, 1:07:09 AM
 ## [Hermanos Gutiérrez: Tres Hermanos](https://open.spotify.com/track/0cb9Ov9eC2eFxac6bCcUZl)
 ![Hermanos Gutiérrez!](https://i.scdn.co/image/ab67616d00001e025e0ab921ce5b7f840e29de33)
 
-## [Kim Borg: Nuoren miehen lauantai](https://open.spotify.com/track/0hn4vlwVUyhT5SSqjFXUnN)
-![Kim Borg!](https://i.scdn.co/image/ab67616d00001e020a08e4d2cf6a91595a8ff253)
-
 ## [Annikki Tähti: Samum](https://open.spotify.com/track/0kCAZhebaY2vslpDMok49Q)
 ![Annikki Tähti!](https://i.scdn.co/image/ab67616d00001e02872f31d5f9a275399be037a2)
 
@@ -41,21 +59,3 @@ My monthly top tracks, updated on 9/1/2023, 1:07:09 AM
 
 ## [Katri Helena: Äänesi mä kuulen](https://open.spotify.com/track/0mT6Cdji6exsd0zHUEKWT4)
 ![Katri Helena!](https://i.scdn.co/image/ab67616d00001e021b775d93ec1d12650eccb62b)
-
-## [Sir Elwoodin hiljaiset värit: Mustasukkaisuus](https://open.spotify.com/track/0s1WdrDFevgKGCjmcBbe6n)
-![Sir Elwoodin hiljaiset värit!](https://i.scdn.co/image/ab67616d00001e0248e4278a45965dea8681458f)
-
-## [Eila Pellinen: Pakoon, pakoon](https://open.spotify.com/track/0wjYHzLvdm5hRGjgmUJ8qH)
-![Eila Pellinen!](https://i.scdn.co/image/ab67616d00001e0250cc26bf6f13845cf0ea7944)
-
-## [Paula Koivuniemi: Luotan sydämen ääneen - Let Me Sing](https://open.spotify.com/track/0wxW5oIXhzfB5VJfWNL4zR)
-![Paula Koivuniemi!](https://i.scdn.co/image/ab67616d00001e020fca8becd15798e3e1bceee2)
-
-## [The Housemartins: I Smell Winter](https://open.spotify.com/track/11hWrozpQFW3D6SpRm1grL)
-![The Housemartins!](https://i.scdn.co/image/ab67616d00001e022e8ba6258f16761e329fbee1)
-
-## [ABBA: Voulez-Vous](https://open.spotify.com/track/17OqI90oTFZ3J8PVu6j07V)
-![ABBA!](https://i.scdn.co/image/ab67616d00001e02aa22899360d8ba6704732dec)
-
-## [The Beach Boys: I Just Wasn't Made For These Times](https://open.spotify.com/track/1936vFNafyF15O6dqbpBYJ)
-![The Beach Boys!](https://i.scdn.co/image/ab67616d00001e02bde8dfd1922129f3d9e3732f)
