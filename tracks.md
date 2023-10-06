@@ -1,4 +1,7 @@
-My monthly top tracks, updated on 9/29/2023, 1:04:12 AM
+My monthly top tracks, updated on 10/6/2023, 1:04:21 AM
+
+## [Laufey: Dreamer](https://open.spotify.com/track/1YxQxV5sKZN1TgVpXl5MLA)
+![Laufey!](https://i.scdn.co/image/ab67616d00001e0274c732f8aa0e0ccbb3d17d96)
 
 ## [Happoradio: Ihmisen mittainen](https://open.spotify.com/track/3xic65BmXJARBFuePWc4oC)
 ![Happoradio!](https://i.scdn.co/image/ab67616d00001e021c252e7677d1adb3fe1d81b1)
@@ -27,9 +30,6 @@ My monthly top tracks, updated on 9/29/2023, 1:04:12 AM
 ## [Paavoharju: Jää](https://open.spotify.com/track/0wBZH8OJSTWZaDnPi34UkI)
 ![Paavoharju!](https://i.scdn.co/image/ab67616d00001e02da9bdc32899edeb7abaf0f94)
 
-## [Laufey: Dreamer](https://open.spotify.com/track/1YxQxV5sKZN1TgVpXl5MLA)
-![Laufey!](https://i.scdn.co/image/ab67616d00001e0274c732f8aa0e0ccbb3d17d96)
-
 ## [Antti Ketonen: Paha mies](https://open.spotify.com/track/1ZBBlzWO7Ozq5YtjI98cGv)
 ![Antti Ketonen!](https://i.scdn.co/image/ab67616d00001e02136fdd8c98dbba4a645064b7)
 
@@ -51,11 +51,11 @@ My monthly top tracks, updated on 9/29/2023, 1:04:12 AM
 ## [Maroon 5: Middle Ground](https://open.spotify.com/track/3xiccJ9jlTVwC8Yl66eGv5)
 ![Maroon 5!](https://i.scdn.co/image/ab67616d00001e02ea911a2084cc9d00f7ce3f51)
 
+## [Vili Mustalampi: Oma loma Roomassa](https://open.spotify.com/track/4853yvHUAx3NWohbDPFHB9)
+![Vili Mustalampi!](https://i.scdn.co/image/ab67616d00001e02a2b167b6befc0241d6ea7612)
+
 ## [Mikko Harju: 11 kirjainta](https://open.spotify.com/track/4Ts1lldp3KDnIa0bVwxNIi)
 ![Mikko Harju!](https://i.scdn.co/image/ab67616d00001e02ed01596560904459d9531c18)
 
 ## [Samu Haber: Raketilla Aurinkoon](https://open.spotify.com/track/4gM09vP5JL4ZXCsQ9giKY0)
 ![Samu Haber!](https://i.scdn.co/image/ab67616d00001e023d03fb5f59bbdfab6d38acaa)
-
-## [Tanssiva Karhu: Kevään leikki](https://open.spotify.com/track/5ASMwAGsnSOUBb28zuMhSy)
-![Tanssiva Karhu!](https://i.scdn.co/image/ab67616d00001e021fb6ecd37ba7ed58aa602346)
