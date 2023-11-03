@@ -1,10 +1,7 @@
-My monthly top tracks, updated on 10/27/2023, 1:03:25 AM
+My monthly top tracks, updated on 11/3/2023, 1:05:18 AM
 
 ## [Isak Danielson: Good Things Come to Those Who Wait](https://open.spotify.com/track/4k392FaIeAtWi8XUyQXMvA)
 ![Isak Danielson!](https://i.scdn.co/image/ab67616d00001e02effa00cdf88846f8ac22bc6e)
-
-## [Anna Puu: Rakkaus tappaa](https://open.spotify.com/track/1v0MVxPYvBYLsS6rQnV9nq)
-![Anna Puu!](https://i.scdn.co/image/ab67616d00001e02e0dfa42c700047d6478f1c7b)
 
 ## [Kaija Koo: Onnea matkaan](https://open.spotify.com/track/2SbVrYGU6Jt0MLc4nz7LBF)
 ![Kaija Koo!](https://i.scdn.co/image/ab67616d00001e02f117a864982f1da5ef19100e)
@@ -12,20 +9,11 @@ My monthly top tracks, updated on 10/27/2023, 1:03:25 AM
 ## [Astor Piazzolla: Tango Saint Louis en L'Ile](https://open.spotify.com/track/0HO3mtXUUks0aNpJ8kiAyY)
 ![Astor Piazzolla!](https://i.scdn.co/image/ab67616d00001e027ab013a3fdb4ec22086a5b70)
 
-## [Laufey: Dreamer](https://open.spotify.com/track/1YxQxV5sKZN1TgVpXl5MLA)
-![Laufey!](https://i.scdn.co/image/ab67616d00001e0274c732f8aa0e0ccbb3d17d96)
-
 ## [Suvi Teräsniska: Seuraavassa elämässä](https://open.spotify.com/track/1hbUAI1nftaeGUMrcGFYkW)
 ![Suvi Teräsniska!](https://i.scdn.co/image/ab67616d00001e02ab2a736f2c6f6e9f4fc360bf)
 
 ## [ABREU: 20 Ave Mariaa](https://open.spotify.com/track/2SREBxoqvxhB0wQHgLeNVI)
 ![ABREU!](https://i.scdn.co/image/ab67616d00001e024c3dd202d840c41b77b916da)
-
-## [Vili Mustalampi: Oma loma Roomassa](https://open.spotify.com/track/4853yvHUAx3NWohbDPFHB9)
-![Vili Mustalampi!](https://i.scdn.co/image/ab67616d00001e02a2b167b6befc0241d6ea7612)
-
-## [Andrea True Connection: More, More, More](https://open.spotify.com/track/05U89SHoWjq8RpWLbcwwaS)
-![Andrea True Connection!](https://i.scdn.co/image/ab67616d00001e02e18a7fd1ad23d6008587a363)
 
 ## [Marita Taavitsainen: Villillä tuulella](https://open.spotify.com/track/0Axo4cuwd1gJBdKnNJtXPy)
 ![Marita Taavitsainen!](https://i.scdn.co/image/ab67616d00001e026baa33e08ecad52f1747cd5d)
@@ -33,29 +21,41 @@ My monthly top tracks, updated on 10/27/2023, 1:03:25 AM
 ## [k.d. lang: The Valley](https://open.spotify.com/track/0HEoicE6USz8KmibeGHXCr)
 ![k.d. lang!](https://i.scdn.co/image/ab67616d00001e023172fb8a260c80df1635e4cf)
 
-## [DJ Ötzi: Hey Baby (Radio Mix)](https://open.spotify.com/track/0HNXnhNZZtRZFLhP4hfyCP)
-![DJ Ötzi!](https://i.scdn.co/image/ab67616d00001e0202577bdef59f3136d3e4ddcf)
-
-## [Jussi & The Boys: Rokkimorsian - I Knew the Bride](https://open.spotify.com/track/0MDwjit19LPQpiVmMV7D08)
-![Jussi & The Boys!](https://i.scdn.co/image/ab67616d00001e02627012089a154290c94a4b70)
-
 ## [P!nk: Never Gonna Not Dance Again](https://open.spotify.com/track/0Uv0h4QmjeR9ew5AjyBR3i)
 ![P!nk!](https://i.scdn.co/image/ab67616d00001e028c09d0b89dc49720d0b1d594)
-
-## [PMMP: Kesäkaverit](https://open.spotify.com/track/0Y4iFmxA8IsP5smsxvO6HD)
-![PMMP!](https://i.scdn.co/image/ab67616d00001e02477b92f923a23de35d86f38d)
 
 ## [Anneli Mattila: Entä jos?](https://open.spotify.com/track/0Z7F61BQ4L41NwxA39eIyV)
 ![Anneli Mattila!](https://i.scdn.co/image/ab67616d00001e02c4c9b02fa3f0da0819ccc910)
 
-## [Julio Iglesias: Me Olvide De Vivir](https://open.spotify.com/track/0kVOor973ijVqOBhYqvaE8)
-![Julio Iglesias!](https://i.scdn.co/image/ab67616d00001e0285c02182c2dff19d5c66c42d)
-
 ## [ALMA: Summer Really Hurt Us](https://open.spotify.com/track/0kXspUCKAHSZAINcsM4ksx)
 ![ALMA!](https://i.scdn.co/image/ab67616d00001e02c537310bea8b08970cc426b4)
 
-## [Troll: Jimmy Dean](https://open.spotify.com/track/0nPNQ84kh7WJtoyW1PyHPN)
-![Troll!](https://i.scdn.co/image/ab67616d00001e020c2f2db7ccbb488245943f0c)
+## [Topi Sorsakoski & Agents: Päivät Ilman Sinua](https://open.spotify.com/track/0qAfCIu5wt5g9BTJtMSSc1)
+![Topi Sorsakoski & Agents!](https://i.scdn.co/image/ab67616d00001e02e2f8473f77b4c8d38560a4b6)
 
 ## [Ursus Factory: Tanssilattialle vielä mahtuu](https://open.spotify.com/track/0qKLhWvhsd1fXyskbD40IN)
 ![Ursus Factory!](https://i.scdn.co/image/ab67616d00001e02d33c2d7a7f21b06ea956642a)
+
+## [Ultra Bra: Kirjoituksia](https://open.spotify.com/track/14tQBkFwO3Jg0P8iU5Hvo9)
+![Ultra Bra!](https://i.scdn.co/image/ab67616d00001e024dd7b2f5affc7050d6ac6f60)
+
+## [Antti Ketonen: Paha mies](https://open.spotify.com/track/1ZBBlzWO7Ozq5YtjI98cGv)
+![Antti Ketonen!](https://i.scdn.co/image/ab67616d00001e02136fdd8c98dbba4a645064b7)
+
+## [BESS: Missio](https://open.spotify.com/track/1mhmASpuZz5ideIXmL3cvC)
+![BESS!](https://i.scdn.co/image/ab67616d00001e028c81572c9e8dd74c4161ad47)
+
+## [Jannika B: Hymytyttö](https://open.spotify.com/track/1ryr7Axym76lYPr5wHiKgz)
+![Jannika B!](https://i.scdn.co/image/ab67616d00001e02955ca776db6d2ca19a45370a)
+
+## [Dua Lipa: Dance The Night - From Barbie The Album](https://open.spotify.com/track/1vYXt7VSjH9JIM5oRRo7vA)
+![Dua Lipa!](https://i.scdn.co/image/ab67616d00001e027dd3ba455ee3390cb55b0192)
+
+## [Viitasen Piia: Paras kellua vaan](https://open.spotify.com/track/2ClW5uwO2OjNlQo3OK7fPw)
+![Viitasen Piia!](https://i.scdn.co/image/ab67616d00001e024bee3cd41a8b7e29ae2a08e3)
+
+## [Adele: Water Under the Bridge](https://open.spotify.com/track/2DRMuw0U0QbkVQxWxdJV3M)
+![Adele!](https://i.scdn.co/image/ab67616d00001e027b9888dc365b8f957c63df14)
+
+## [Lauri Tähkä: Mä en pelkää](https://open.spotify.com/track/2M3BLmR2f8MIkXS3OKkbeP)
+![Lauri Tähkä!](https://i.scdn.co/image/ab67616d00001e02c63afccba4e94b9e730406c0)
