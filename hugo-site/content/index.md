@@ -1,61 +1,61 @@
-My monthly top tracks, updated on 12/29/2023, 12:56:39 AM
-
-## [Antti Autio: Yksin](https://open.spotify.com/track/5oZjAQwHaoaOPv1FouehHA)
-![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02f4b202b38565d576b9744407)
-
-## [Juha Tapio: Joulukertomus](https://open.spotify.com/track/24ptTcgWvhOBa5BJLxjq7Q)
-![Juha Tapio!](https://i.scdn.co/image/ab67616d00001e02604ecd6444d271ba54ad117d)
-
-## [Fleet Foxes: White Winter Hymnal](https://open.spotify.com/track/4XTuSMs47SIg35KxhNIUGe)
-![Fleet Foxes!](https://i.scdn.co/image/ab67616d00001e02561726f8053f54775e7d5bfe)
+My monthly top tracks, updated on 1/5/2024, 1:07:55 AM
 
 ## [KUUMAA: Satama](https://open.spotify.com/track/1osPz2rgtdywUR6ut6eIMU)
 ![KUUMAA!](https://i.scdn.co/image/ab67616d00001e022ed3a9951807886f9b76c4cf)
 
-## [The Jackson 5: Santa Claus Is Coming To Town](https://open.spotify.com/track/2QpN1ZVw8eJO5f7WcvUA1k)
-![The Jackson 5!](https://i.scdn.co/image/ab67616d00001e0208a0fe33e91b991d2c9c9cde)
+## [Fleet Foxes: White Winter Hymnal](https://open.spotify.com/track/4XTuSMs47SIg35KxhNIUGe)
+![Fleet Foxes!](https://i.scdn.co/image/ab67616d00001e02561726f8053f54775e7d5bfe)
+
+## [Culture Club: Karma Chameleon](https://open.spotify.com/track/3XDeeP9wBZzGhIPZmLfEEx)
+![Culture Club!](https://i.scdn.co/image/ab67616d00001e02784f3d22b1b28313311acd2a)
 
 ## [Leevi and the leavings: Jossain on kai vielä joulu](https://open.spotify.com/track/1SrJgsaUN5heU57gpCWbAU)
 ![Leevi and the leavings!](https://i.scdn.co/image/ab67616d00001e02a8cd02af5e1d9c69e50205b6)
 
-## [Kielo Kärkkäinen: Valkovuokkonäyt](https://open.spotify.com/track/0XxJtrnjwv4hhLMnCYoLM7)
-![Kielo Kärkkäinen!](https://i.scdn.co/image/ab67616d00001e027c2a3f5180143d17bc56e127)
+## [ABREU: Yhen elämän juttu](https://open.spotify.com/track/0IXLyheDMnOQ4mmTrScjAR)
+![ABREU!](https://i.scdn.co/image/ab67616d00001e025388e337644e1d5af70b1083)
 
-## [Heidi Simelius: Ikiaikojen Taa](https://open.spotify.com/track/2Gx1m9sbFhHRTvLduUV92a)
-![Heidi Simelius!](https://i.scdn.co/image/ab67616d00001e0236c1716b6ce7249eb24efefe)
+## [Vera Alice: Find My Way Home](https://open.spotify.com/track/1LlVklNi0WgVi4sR6A3C7C)
+![Vera Alice!](https://i.scdn.co/image/ab67616d00001e0229b772a3a1e324f626c37f08)
 
 ## [HAAPASALO: Rakkauslaulu](https://open.spotify.com/track/2LnrNL6nu4SSQmlM7lqxyU)
 ![HAAPASALO!](https://i.scdn.co/image/ab67616d00001e0213a1dcb997bd9b984ac2c95c)
 
-## [Tracy Chapman: O Holy Night](https://open.spotify.com/track/2Ykid5zsdq57bc9km6fDub)
-![Tracy Chapman!](https://i.scdn.co/image/ab67616d00001e02928cbca11cb33ce6b27c0b7c)
+## [ABBA: The Winner Takes It All](https://open.spotify.com/track/3oEkrIfXfSh9zGnE7eBzSV)
+![ABBA!](https://i.scdn.co/image/ab67616d00001e024d08fc99eff4ed52dfce91fa)
 
-## [Jarkko Ahola: When You Wish Upon A Star](https://open.spotify.com/track/3Bex3ZqLDZbKsbBvg5h4D0)
-![Jarkko Ahola!](https://i.scdn.co/image/ab67616d00001e0237bee95a4b539f0cc3cc1e2c)
-
-## [BÄMÄ: Kaiken takana on bämä](https://open.spotify.com/track/4NZIZeNZScnHy49x0PLNXI)
-![BÄMÄ!](https://i.scdn.co/image/ab67616d00001e02fca812a739304a6057b9125c)
-
-## [Atomirotta: Huijari](https://open.spotify.com/track/4rW0YuwCMjtSc9gbU7rK6c)
-![Atomirotta!](https://i.scdn.co/image/ab67616d00001e02c57d0fae9e534b86952e291a)
+## [Aki Sirkesalo: Myrkytyksen oireet](https://open.spotify.com/track/4xb3XnS8lzL50Bgt3h4KGd)
+![Aki Sirkesalo!](https://i.scdn.co/image/ab67616d00001e02c627d9ea4d1efcb42ecedcb0)
 
 ## [Antti Autio: Kaikki talot huojuu](https://open.spotify.com/track/5LD7bRWSWj7Co2OX7KDbVH)
 ![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02afbdd5a1a6c0dceab2c46736)
 
-## [Sointu: Tervehtii jo meitä](https://open.spotify.com/track/5fyfhorM3wKWpxlwVPN6dK)
-![Sointu!](https://i.scdn.co/image/ab67616d00001e02f20df51ed6ba0106f4d467cb)
-
 ## [Sammy Babitzin: Autoileva joulupukki - 2010 Digital Remaster;](https://open.spotify.com/track/602RcSN0HOo9uQgJaAbyVg)
 ![Sammy Babitzin!](https://i.scdn.co/image/ab67616d00001e023e933a10b9b522a88f7cfa40)
-
-## [The First Noel Band: Merry Christmas Darling (In the Style of tThe Carpenters)](https://open.spotify.com/track/65bkDu6Bt2Gkj9ONo9c5cK)
-![The First Noel Band!](https://i.scdn.co/image/ab67616d00001e028b0a6e1a59c0059fc1036cdf)
-
-## [Litku Klemetti: Asiatonta oleskelua](https://open.spotify.com/track/66e11XzzyOmUlAv8XeZooD)
-![Litku Klemetti!](https://i.scdn.co/image/ab67616d00001e027facdbe26a978a7e8420a952)
 
 ## [Flok: Sydäntalvi](https://open.spotify.com/track/67v5nldzDZlQYu53NOJiMH)
 ![Flok!](https://i.scdn.co/image/ab67616d00001e02a6499f4fff15d5cee2000c4a)
 
-## [Diana Krall: Let It Snow](https://open.spotify.com/track/6zduorj53VssZG2WOsXq3G)
-![Diana Krall!](https://i.scdn.co/image/ab67616d00001e02643bd77b2da945bf31993474)
+## [Eva Dahlgren: När en röd ros slår ut doftar hela skogen](https://open.spotify.com/track/6m1o0GrUB2XLuBY2283mwz)
+![Eva Dahlgren!](https://i.scdn.co/image/ab67616d00001e02692e1992cc64203787f3e05b)
+
+## [JANNA: Kylmältä Suojassa](https://open.spotify.com/track/3J7jzgVqHTu436r5LxPonR)
+![JANNA!](https://i.scdn.co/image/ab67616d00001e027fb695e651f3a233b0da4d9d)
+
+## [Yölintu: Tonttu Ja Enkeli](https://open.spotify.com/track/4Nx4xJdtSS4TXbhV5vHlsh)
+![Yölintu!](https://i.scdn.co/image/ab67616d00001e028c2c91b81729b9ed9d1e780c)
+
+## [The Jackson 5: Santa Claus Is Coming To Town](https://open.spotify.com/track/2QpN1ZVw8eJO5f7WcvUA1k)
+![The Jackson 5!](https://i.scdn.co/image/ab67616d00001e0208a0fe33e91b991d2c9c9cde)
+
+## [Katri Helena: Joulumaa](https://open.spotify.com/track/3QqsEc7mv1Kq9aWNpQgHsU)
+![Katri Helena!](https://i.scdn.co/image/ab67616d00001e0236330b463e2ab02d51ea8114)
+
+## [Mirkka: Joulu joka ikkunalla](https://open.spotify.com/track/74oyFKV1SnmMbV4mpUBMDE)
+![Mirkka!](https://i.scdn.co/image/ab67616d00001e029bfa1e43d68c3b0a9af8c09d)
+
+## [Vesa-Matti Loiri: Sydämeeni joulun teen](https://open.spotify.com/track/2Kouu3rnDZ5ZVqWtPEAsGo)
+![Vesa-Matti Loiri!](https://i.scdn.co/image/ab67616d00001e02c2b670d5c7bae3b01baf28b2)
+
+## [Anna Eriksson: Sylvian joululaulu - Live](https://open.spotify.com/track/1EtOPWm8qw9UTuq5kQiS04)
+![Anna Eriksson!](https://i.scdn.co/image/ab67616d00001e02d9a7a1402eee9e9bcee6f3d6)
