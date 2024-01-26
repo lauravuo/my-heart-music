@@ -1,61 +1,61 @@
-My monthly top tracks, updated on 1/19/2024, 1:09:41 AM
+My monthly top tracks, updated on 1/26/2024, 1:05:29 AM
 
-## [Sammy Babitzin: Autoileva joulupukki - 2010 Digital Remaster;](https://open.spotify.com/track/602RcSN0HOo9uQgJaAbyVg)
-![Sammy Babitzin!](https://i.scdn.co/image/ab67616d00001e023e933a10b9b522a88f7cfa40)
+## [Maija Vilkkumaa: Se pistää ajoittain itkemään](https://open.spotify.com/track/4lzlBdCpDKPK0ECUcGpjVl)
+![Maija Vilkkumaa!](https://i.scdn.co/image/ab67616d00001e024108fad328d2d5ab5e76a043)
 
-## [Katri Helena: Joulumaa](https://open.spotify.com/track/3QqsEc7mv1Kq9aWNpQgHsU)
-![Katri Helena!](https://i.scdn.co/image/ab67616d00001e0236330b463e2ab02d51ea8114)
+## [Kerkko Koskinen: Tätä miestä ei ruoste raiskaa](https://open.spotify.com/track/0J5fuXA1MIPkhLvODVm1Wx)
+![Kerkko Koskinen!](https://i.scdn.co/image/ab67616d00001e02e5af67a2c7ded18346dec8fb)
 
-## [Culture Club: Karma Chameleon](https://open.spotify.com/track/3XDeeP9wBZzGhIPZmLfEEx)
-![Culture Club!](https://i.scdn.co/image/ab67616d00001e02784f3d22b1b28313311acd2a)
-
-## [Leevi and the leavings: Jossain on kai vielä joulu](https://open.spotify.com/track/1SrJgsaUN5heU57gpCWbAU)
-![Leevi and the leavings!](https://i.scdn.co/image/ab67616d00001e02a8cd02af5e1d9c69e50205b6)
-
-## [Vesa-Matti Loiri: Sydämeeni joulun teen](https://open.spotify.com/track/2Kouu3rnDZ5ZVqWtPEAsGo)
-![Vesa-Matti Loiri!](https://i.scdn.co/image/ab67616d00001e02c2b670d5c7bae3b01baf28b2)
-
-## [Anna Eriksson: Sylvian joululaulu - Live](https://open.spotify.com/track/1EtOPWm8qw9UTuq5kQiS04)
-![Anna Eriksson!](https://i.scdn.co/image/ab67616d00001e02d9a7a1402eee9e9bcee6f3d6)
-
-## [Haloo Helsinki!: Joulun kanssas jaan (feat. Cantores Minores)](https://open.spotify.com/track/3RCxl6HWK4ADOzMbY8FZCw)
-![Haloo Helsinki!!](https://i.scdn.co/image/ab67616d00001e02e5a2e54b623f84844d927560)
-
-## [Ludovico Einaudi: Nuvole Bianche](https://open.spotify.com/track/3weNRklVDqb4Rr5MhKBR3D)
-![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e02c0c021c0ac135d923b3a0ddc)
-
-## [Laura Pausini: E ritorno da te](https://open.spotify.com/track/03rT5vyFY2Cr5velZ1s0Fq)
-![Laura Pausini!](https://i.scdn.co/image/ab67616d00001e023fac6c3ae2cdd9f6425e0dc0)
-
-## [ABREU: Yhen elämän juttu](https://open.spotify.com/track/0IXLyheDMnOQ4mmTrScjAR)
-![ABREU!](https://i.scdn.co/image/ab67616d00001e025388e337644e1d5af70b1083)
-
-## [Huojuva lato: Juuret Iijoen törmässä](https://open.spotify.com/track/0Qdd2t76fUcyZmB1O5fCSY)
-![Huojuva lato!](https://i.scdn.co/image/ab67616d00001e028a34176ba332ea55e77d0a3e)
-
-## [Lyyti: Nousussa taas](https://open.spotify.com/track/0UPtT1onPBdv4tkPSScGo8)
-![Lyyti!](https://i.scdn.co/image/ab67616d00001e02988df4b57492563650ab7fbb)
-
-## [Olga Wilhelmiina: Pakkasvalssi](https://open.spotify.com/track/0aX5HBKg1T2BDH2DaHQlek)
-![Olga Wilhelmiina!](https://i.scdn.co/image/ab67616d00001e02b40a05bb4ad9143f5fb91e9b)
-
-## [Ms. Lauryn Hill: Doo Wop (That Thing)](https://open.spotify.com/track/0uEp9E98JB5awlA084uaIg)
-![Ms. Lauryn Hill!](https://i.scdn.co/image/ab67616d00001e02e08b1250db5f75643f1508c9)
+## [Maija Vilkkumaa: Tyyny](https://open.spotify.com/track/4z8qqsMGw2A0bEjombyPxv)
+![Maija Vilkkumaa!](https://i.scdn.co/image/ab67616d00001e02aea9b22bce0868f943d5c706)
 
 ## [Sir Elwoodin hiljaiset värit: Vanha Valokuva](https://open.spotify.com/track/1gRp4DRA2AgMwJvE5Jp9qm)
 ![Sir Elwoodin hiljaiset värit!](https://i.scdn.co/image/ab67616d00001e0210b1166616159891fc28aee5)
 
-## [Patti Smith: Amerigo](https://open.spotify.com/track/1tZ4JHHtnELQC3smRIkJ2q)
-![Patti Smith!](https://i.scdn.co/image/ab67616d00001e028fa406bd669fca6d2f7d77d5)
+## [Ricky-Tick Big Band: Rakkaudella Vihaajille](https://open.spotify.com/track/1jLuAHpeZraKSYsbrQfTIE)
+![Ricky-Tick Big Band!](https://i.scdn.co/image/ab67616d00001e02b5d68e1a8d02773016945da2)
 
-## [Anna Puu: Rakkaus tappaa](https://open.spotify.com/track/1v0MVxPYvBYLsS6rQnV9nq)
-![Anna Puu!](https://i.scdn.co/image/ab67616d00001e02e0dfa42c700047d6478f1c7b)
+## [ABBA: I Wonder (Departure)](https://open.spotify.com/track/3F814TK36gzKsUxBJ3V3iI)
+![ABBA!](https://i.scdn.co/image/ab67616d00001e026f705bef76c1d861c4d51d8c)
 
-## [Anna Eriksson: Teit minusta sairaan - Live](https://open.spotify.com/track/27HU5y4Cf79OwKuIizngvf)
-![Anna Eriksson!](https://i.scdn.co/image/ab67616d00001e02c67b77286d5808d4772bcd0e)
+## [ABBA: My Love, My Life](https://open.spotify.com/track/7qbQFKgGOxk7aoCBGwLZuA)
+![ABBA!](https://i.scdn.co/image/ab67616d00001e0270f7a1b35d5165c85b95a0e0)
 
-## [Arppa: Juhani](https://open.spotify.com/track/33sgloGFdSgqLRUbYjAIoS)
-![Arppa!](https://i.scdn.co/image/ab67616d00001e0250a13953384e3ca76feaeeec)
+## [Lyyti: Nousussa taas](https://open.spotify.com/track/0UPtT1onPBdv4tkPSScGo8)
+![Lyyti!](https://i.scdn.co/image/ab67616d00001e02988df4b57492563650ab7fbb)
 
-## [TEYA: Who the Hell Is Edgar?](https://open.spotify.com/track/3gUC7tGDPVLOq42vvTUVdI)
-![TEYA!](https://i.scdn.co/image/ab67616d00001e02b75dd1b7de969ef4e3a497c2)
+## [Scandinavian Music Group: Minne Katosivat Päivät](https://open.spotify.com/track/0W7aQQmTvVkeETsbeITA0V)
+![Scandinavian Music Group!](https://i.scdn.co/image/ab67616d00001e0282f3ae574014e87cff35e18e)
+
+## [Culture Club: Karma Chameleon](https://open.spotify.com/track/3XDeeP9wBZzGhIPZmLfEEx)
+![Culture Club!](https://i.scdn.co/image/ab67616d00001e02784f3d22b1b28313311acd2a)
+
+## [Maija Vilkkumaa: Ei saa surettaa](https://open.spotify.com/track/4C889FTAFcrCQE2JdjeAIW)
+![Maija Vilkkumaa!](https://i.scdn.co/image/ab67616d00001e028829148a397c0276d03aaf8b)
+
+## [Laura Pausini: E ritorno da te](https://open.spotify.com/track/03rT5vyFY2Cr5velZ1s0Fq)
+![Laura Pausini!](https://i.scdn.co/image/ab67616d00001e023fac6c3ae2cdd9f6425e0dc0)
+
+## [Meiju Suvas: Tää onnea on - Maria No Mas](https://open.spotify.com/track/08yKuvs5giiYCSqpEatti2)
+![Meiju Suvas!](https://i.scdn.co/image/ab67616d00001e02a5178203ce3a36e8ac875b4a)
+
+## [k.d. lang: The Valley](https://open.spotify.com/track/0HEoicE6USz8KmibeGHXCr)
+![k.d. lang!](https://i.scdn.co/image/ab67616d00001e023172fb8a260c80df1635e4cf)
+
+## [Huojuva lato: Juuret Iijoen törmässä](https://open.spotify.com/track/0Qdd2t76fUcyZmB1O5fCSY)
+![Huojuva lato!](https://i.scdn.co/image/ab67616d00001e028a34176ba332ea55e77d0a3e)
+
+## [ABREU: Sytyn](https://open.spotify.com/track/0bup6XzvVJUL8wKUI0P1AP)
+![ABREU!](https://i.scdn.co/image/ab67616d00001e023a24aabe6c5e241d13c97f8f)
+
+## [Maarit: Ei tule hyvin kylmää - Akustinen versio](https://open.spotify.com/track/0mNTudAcFxxv12namT6Cft)
+![Maarit!](https://i.scdn.co/image/ab67616d00001e02f4f55dd2c4092f84f152b968)
+
+## [Katri Helena: Äänesi mä kuulen](https://open.spotify.com/track/0mT6Cdji6exsd0zHUEKWT4)
+![Katri Helena!](https://i.scdn.co/image/ab67616d00001e021b775d93ec1d12650eccb62b)
+
+## [Ms. Lauryn Hill: Doo Wop (That Thing)](https://open.spotify.com/track/0uEp9E98JB5awlA084uaIg)
+![Ms. Lauryn Hill!](https://i.scdn.co/image/ab67616d00001e02e08b1250db5f75643f1508c9)
+
+## [Eva Dahlgren: Vem tänder stjärnorna](https://open.spotify.com/track/0xljZqZHvXhVfse33fQ9bK)
+![Eva Dahlgren!](https://i.scdn.co/image/ab67616d00001e020ecb81fc5f561ea4e429de30)
