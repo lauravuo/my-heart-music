@@ -1,43 +1,16 @@
-My monthly top tracks, updated on 2/16/2024, 1:03:57 AM
-
-## [Kielo Kärkkäinen: Valkovuokkonäyt](https://open.spotify.com/track/0XxJtrnjwv4hhLMnCYoLM7)
-![Kielo Kärkkäinen!](https://i.scdn.co/image/ab67616d00001e027c2a3f5180143d17bc56e127)
-
-## [Fleet Foxes: White Winter Hymnal](https://open.spotify.com/track/4XTuSMs47SIg35KxhNIUGe)
-![Fleet Foxes!](https://i.scdn.co/image/ab67616d00001e02561726f8053f54775e7d5bfe)
-
-## [Fredrik Halland: Stranded](https://open.spotify.com/track/29xLrq58WHxo9DHasApdGS)
-![Fredrik Halland!](https://i.scdn.co/image/ab67616d00001e02a32b4d00a1a59d2ab26f4de6)
-
-## [Teflon Brothers: Seksikkäin jäbä](https://open.spotify.com/track/2Ynd1BuOdfrGFU1HgW5fXJ)
-![Teflon Brothers!](https://i.scdn.co/image/ab67616d00001e02492fbe5fc5ba4c7304841e87)
+My monthly top tracks, updated on 2/23/2024, 1:02:40 AM
 
 ## [Lynyrd Skynyrd: Free Bird](https://open.spotify.com/track/5EWPGh7jbTNO2wakv8LjUI)
 ![Lynyrd Skynyrd!](https://i.scdn.co/image/ab67616d00001e02128450651c9f0442780d8eb8)
 
-## [Marko Haavisto & Poutahaukat: Puolitien mies](https://open.spotify.com/track/2kcb7CIYFvBl4n6m5HfiQ5)
-![Marko Haavisto & Poutahaukat!](https://i.scdn.co/image/ab67616d00001e02b6653285fbe1f7055f0980b8)
+## [Kielo Kärkkäinen: Valkovuokkonäyt](https://open.spotify.com/track/0XxJtrnjwv4hhLMnCYoLM7)
+![Kielo Kärkkäinen!](https://i.scdn.co/image/ab67616d00001e027c2a3f5180143d17bc56e127)
 
-## [Winona Oak: Fragile Thing](https://open.spotify.com/track/6WThsZZ0AaMNm4UkBnMmiB)
-![Winona Oak!](https://i.scdn.co/image/ab67616d00001e0260fdb570dccbfa7f8c758f21)
+## [Meiju Suvas: Irti (Vain elämää kausi 13)](https://open.spotify.com/track/0fgt0VoQim7gGZTPJBn1RM)
+![Meiju Suvas!](https://i.scdn.co/image/ab67616d00001e02532f45eefb25152ab2932eab)
 
-## [Eva Dahlgren: Säg mitt namn](https://open.spotify.com/track/5rWau6OmDotkNdWWNiJO9p)
-![Eva Dahlgren!](https://i.scdn.co/image/ab67616d00001e023b728c167ac04e51c22dcb9e)
-
-## [Meiju Suvas: Tää onnea on - Maria No Mas](https://open.spotify.com/track/08yKuvs5giiYCSqpEatti2)
-![Meiju Suvas!](https://i.scdn.co/image/ab67616d00001e02a5178203ce3a36e8ac875b4a)
-
-## [Maarit: Ei tule hyvin kylmää - Akustinen versio](https://open.spotify.com/track/0mNTudAcFxxv12namT6Cft)
-![Maarit!](https://i.scdn.co/image/ab67616d00001e02f4f55dd2c4092f84f152b968)
-
-## [Vesala: Pahanilmanlinnut](https://open.spotify.com/track/1CABGhTi59w3PaqfraypYf)
-![Vesala!](https://i.scdn.co/image/ab67616d00001e02c7749b636a4699d0191fac63)
-
-## [Vera Alice: Find My Way Home](https://open.spotify.com/track/1LlVklNi0WgVi4sR6A3C7C)
-![Vera Alice!](https://i.scdn.co/image/ab67616d00001e0229b772a3a1e324f626c37f08)
-
-## [Arppa: Juhani](https://open.spotify.com/track/1xAdwGByawd5wE7LmafKUa)
-![Arppa!](https://i.scdn.co/image/ab67616d00001e026837b01bf7be6395cb63ae72)
+## [Teflon Brothers: Seksikkäin jäbä](https://open.spotify.com/track/2Ynd1BuOdfrGFU1HgW5fXJ)
+![Teflon Brothers!](https://i.scdn.co/image/ab67616d00001e02492fbe5fc5ba4c7304841e87)
 
 ## [Kaija Koo: Läpinäkyvää](https://open.spotify.com/track/2hlsy6S5WNwzNPjQ5AgiDj)
 ![Kaija Koo!](https://i.scdn.co/image/ab67616d00001e02b2f1d98a03707e4f384038ef)
@@ -45,17 +18,44 @@ My monthly top tracks, updated on 2/16/2024, 1:03:57 AM
 ## [Katri Helena: Katson sineen taivaan](https://open.spotify.com/track/3072xUsv1Rv7TzyurcId7P)
 ![Katri Helena!](https://i.scdn.co/image/ab67616d00001e021f44a945532c56139fe24088)
 
-## [Aki Sirkesalo: Mä Tuun Kotiin](https://open.spotify.com/track/43GEbyFzp0YuztlX37ARjk)
-![Aki Sirkesalo!](https://i.scdn.co/image/ab67616d00001e02af081858599618166f01ed2a)
+## [Ludovico Einaudi: Nuvole Bianche](https://open.spotify.com/track/3weNRklVDqb4Rr5MhKBR3D)
+![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e02c0c021c0ac135d923b3a0ddc)
 
-## [Sir Elwoodin hiljaiset värit: Sellaista Se On](https://open.spotify.com/track/4gI0nCEF5soAYSluXAyOOv)
-![Sir Elwoodin hiljaiset värit!](https://i.scdn.co/image/ab67616d00001e02fc7a49799fe5edfd60b9cc79)
-
-## [Paula Koivuniemi: Vie minut pois](https://open.spotify.com/track/4yXqH0T1iqXcdhg4EzQqhC)
-![Paula Koivuniemi!](https://i.scdn.co/image/ab67616d00001e023bb3099b6c64ffde0c313f53)
+## [Maija Vilkkumaa: Teini](https://open.spotify.com/track/4Mqd4bOLoy6xmfojDuCd5n)
+![Maija Vilkkumaa!](https://i.scdn.co/image/ab67616d00001e028a1a59ab62ac17298f88d263)
 
 ## [Weyes Blood: Andromeda](https://open.spotify.com/track/51EMSRpNm9Rg5rGViVCczv)
 ![Weyes Blood!](https://i.scdn.co/image/ab67616d00001e020c64e752dec4c08362cc4a88)
 
 ## [Gasellit: Laulu ilman sanoja (feat. ABREU)](https://open.spotify.com/track/5U6DBJXCpgbwDirAYukeHo)
 ![Gasellit!](https://i.scdn.co/image/ab67616d00001e02c573a136100da4b38d5dbe38)
+
+## [Antti Autio: Yksin](https://open.spotify.com/track/5oZjAQwHaoaOPv1FouehHA)
+![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02f4b202b38565d576b9744407)
+
+## [Billie Eilish: No Time To Die](https://open.spotify.com/track/73SpzrcaHk0RQPFP73vqVR)
+![Billie Eilish!](https://i.scdn.co/image/ab67616d00001e02f7b7174bef6f3fbfda3a0bb7)
+
+## [Natalia Barbu: In the Middle](https://open.spotify.com/track/5ViF3hsL0iwD7jhh5JB2Ip)
+![Natalia Barbu!](https://i.scdn.co/image/ab67616d00001e02ce81bbf51c84fadcbb39ba88)
+
+## [Fleet Foxes: White Winter Hymnal](https://open.spotify.com/track/4XTuSMs47SIg35KxhNIUGe)
+![Fleet Foxes!](https://i.scdn.co/image/ab67616d00001e02561726f8053f54775e7d5bfe)
+
+## [ABBA: Thank You For The Music](https://open.spotify.com/track/08GOw3NsrJ0LsCCeyqzt3b)
+![ABBA!](https://i.scdn.co/image/ab67616d00001e026f705bef76c1d861c4d51d8c)
+
+## [Antti Tuisku: Mistä minä tiedän](https://open.spotify.com/track/0RPx60phqtJ3Vr8pQ6NC0A)
+![Antti Tuisku!](https://i.scdn.co/image/ab67616d00001e02995a3c86d4153c8392fdc135)
+
+## [Maarit: Ei tule hyvin kylmää - Akustinen versio](https://open.spotify.com/track/0mNTudAcFxxv12namT6Cft)
+![Maarit!](https://i.scdn.co/image/ab67616d00001e02f4f55dd2c4092f84f152b968)
+
+## [kia: nuori kapinallinen](https://open.spotify.com/track/0pLcm8hKhRt229evSpxA8A)
+![kia!](https://i.scdn.co/image/ab67616d00001e0202803a04731c45e103a86ed0)
+
+## [Topi Sorsakoski & Agents: Päivät Ilman Sinua](https://open.spotify.com/track/0qAfCIu5wt5g9BTJtMSSc1)
+![Topi Sorsakoski & Agents!](https://i.scdn.co/image/ab67616d00001e02e2f8473f77b4c8d38560a4b6)
+
+## [Purple Disco Machine: Hypnotized](https://open.spotify.com/track/0vWUhCPxpJOJR5urYbZypB)
+![Purple Disco Machine!](https://i.scdn.co/image/ab67616d00001e0297d1c39f7d7e80aab88cbf34)
