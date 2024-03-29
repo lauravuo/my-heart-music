@@ -1,61 +1,61 @@
-My monthly top tracks, updated on 3/22/2024, 1:03:59 AM
+My monthly top tracks, updated on 3/29/2024, 1:04:47 AM
 
 ## [Dent May: Coasting On Fumes](https://open.spotify.com/track/2spaJFrNToRNoaQfFuCx1X)
 ![Dent May!](https://i.scdn.co/image/ab67616d00001e02bdf336468df2f2fc1cef027d)
 
+## [Adele: Water Under the Bridge](https://open.spotify.com/track/2DRMuw0U0QbkVQxWxdJV3M)
+![Adele!](https://i.scdn.co/image/ab67616d00001e027b9888dc365b8f957c63df14)
+
 ## [Vesa-Matti Loiri: Höyhensaaret](https://open.spotify.com/track/3sBmDxXqUZGIlv1UkTG56Z)
 ![Vesa-Matti Loiri!](https://i.scdn.co/image/ab67616d00001e0266180110400c69fa129f99af)
-
-## [Gustaf Ljunggren: Kongens Mark](https://open.spotify.com/track/3DDdx1Zss6qx8Vu12E9sdI)
-![Gustaf Ljunggren!](https://i.scdn.co/image/ab67616d00001e02dbf094e652be2349b7bde20c)
-
-## [Millennium Project: Che Guevara 2K18](https://open.spotify.com/track/0hujzXTF2t4hmFDaaC3nh6)
-![Millennium Project!](https://i.scdn.co/image/ab67616d00001e0237cb95ce1a499038cc4ad6a5)
-
-## [Vesa-Matti Loiri: Tulkaa kotiin](https://open.spotify.com/track/2ArGcw96dOGcRzTignAmkF)
-![Vesa-Matti Loiri!](https://i.scdn.co/image/ab67616d00001e0266180110400c69fa129f99af)
-
-## [Vesa-Matti Loiri: Elegia](https://open.spotify.com/track/2yXwDDa357IYXuMsFiJchr)
-![Vesa-Matti Loiri!](https://i.scdn.co/image/ab67616d00001e0266180110400c69fa129f99af)
-
-## [Kelly Clarkson: 9 to 5 (FROM THE STILL WORKING 9 TO 5 DOCUMENTARY)](https://open.spotify.com/track/32bfqEO7JcH2x0XFxVVVf0)
-![Kelly Clarkson!](https://i.scdn.co/image/ab67616d00001e02f3bac18199f0daf57953bbd1)
-
-## [RAYE: Introduction.](https://open.spotify.com/track/3NW2NRsPJfA4moQ0UhxlZk)
-![RAYE!](https://i.scdn.co/image/ab67616d00001e0294e5237ce925531dbb38e75f)
-
-## [Cyan Kicks: Dancing With Demons](https://open.spotify.com/track/4pcRT5s4d3TzzhBQKXgAjY)
-![Cyan Kicks!](https://i.scdn.co/image/ab67616d00001e021bdd1a12d4125c747099d5aa)
-
-## [Beyoncé: TEXAS HOLD 'EM](https://open.spotify.com/track/0Z7nGFVCLfixWctgePsRk9)
-![Beyoncé!](https://i.scdn.co/image/ab67616d00001e0249188fe723e4734b391f5162)
-
-## [RAYE: Escapism.](https://open.spotify.com/track/5mHdCZtVyb4DcJw8799hZp)
-![RAYE!](https://i.scdn.co/image/ab67616d00001e0294e5237ce925531dbb38e75f)
-
-## [Vesterinen yhtyeineen: Tummilla teillä](https://open.spotify.com/track/01hQQr1vfQiz4LPpQnDGiO)
-![Vesterinen yhtyeineen!](https://i.scdn.co/image/ab67616d00001e020f7961d1d8b159bbb4c5d3ce)
-
-## [Peter Gabriel: Sledgehammer](https://open.spotify.com/track/029NqmIySn1kOY305AAhxT)
-![Peter Gabriel!](https://i.scdn.co/image/ab67616d00001e0211bb04f55be562c76d8e8ecf)
 
 ## [ABBA: Eagle](https://open.spotify.com/track/03BqDZmqex6IzC6Mxw8m2o)
 ![ABBA!](https://i.scdn.co/image/ab67616d00001e02ec5de82891e542d4877c6d98)
 
-## [PSY: Gangnam Style (강남스타일)](https://open.spotify.com/track/03UrZgTINDqvnUMbbIMhql)
-![PSY!](https://i.scdn.co/image/ab67616d00001e026cfc57e5358c5e39e79bccbd)
+## [Alanis Morissette: Reasons I Drink](https://open.spotify.com/track/0bkwdUzmVHq5xEySXuaoY5)
+![Alanis Morissette!](https://i.scdn.co/image/ab67616d00001e02e26494d6f00314546da3b4b0)
 
-## [Hanna Pakarinen: Leave Me Alone](https://open.spotify.com/track/05ukQMuIK6AtfUTXEkXgnZ)
-![Hanna Pakarinen!](https://i.scdn.co/image/ab67616d00001e028366e1951ce06de5b20dda34)
+## [BEHM: Lupaan (feat. Rajaton)](https://open.spotify.com/track/0dnzdfbHsC4ITKhcp9FM0x)
+![BEHM!](https://i.scdn.co/image/ab67616d00001e0232ec0ef07e57d19a25ecbc93)
 
-## [Taikakuu: Saanko luvan](https://open.spotify.com/track/08DIrb3Z9k2N9ZCzmKKzdr)
-![Taikakuu!](https://i.scdn.co/image/ab67616d00001e02338fdc3d18380d29098c659c)
+## [Arppa: Laila](https://open.spotify.com/track/1QDyODqDEmfd0ldAFCOlf0)
+![Arppa!](https://i.scdn.co/image/ab67616d00001e02ab00476f3bf0c7eca81ae6ed)
 
-## [MGMT: Nothing To Declare](https://open.spotify.com/track/0Bk6aJZrxihrnZEotFlfze)
-![MGMT!](https://i.scdn.co/image/ab67616d00001e021fd336bd388a632180e721d8)
+## [Samuli Putro: Olet puolisoni nyt](https://open.spotify.com/track/20lUjyfg5xXXl87VHtiOFi)
+![Samuli Putro!](https://i.scdn.co/image/ab67616d00001e022f68f163dc63aaa3574805d8)
 
-## [Brittany Howard: Power To Undo](https://open.spotify.com/track/0DgGr62ntCpgmjV2yDTOtI)
-![Brittany Howard!](https://i.scdn.co/image/ab67616d00001e02c5242f93568468cf97d6a9e6)
+## [Sir Elwoodin hiljaiset värit: Hämärän Taa](https://open.spotify.com/track/2O5D1ut6ByPNWkLK0ggOik)
+![Sir Elwoodin hiljaiset värit!](https://i.scdn.co/image/ab67616d00001e02216d3516ab9948782f4ebea0)
 
-## [Gustaf Ljunggren: Vestegnsromantik](https://open.spotify.com/track/0EtogpsLXYtbJeHigksX68)
+## [ABREU: 20 Ave Mariaa](https://open.spotify.com/track/2SREBxoqvxhB0wQHgLeNVI)
+![ABREU!](https://i.scdn.co/image/ab67616d00001e024c3dd202d840c41b77b916da)
+
+## [Gustaf Ljunggren: Kongens Mark](https://open.spotify.com/track/3DDdx1Zss6qx8Vu12E9sdI)
 ![Gustaf Ljunggren!](https://i.scdn.co/image/ab67616d00001e02dbf094e652be2349b7bde20c)
+
+## [Beyoncé: Halo](https://open.spotify.com/track/4JehYebiI9JE8sR8MisGVb)
+![Beyoncé!](https://i.scdn.co/image/ab67616d00001e02801c4d205accdba0a468a10b)
+
+## [Arja Koriseva: Leipää, lempee, lämpöö](https://open.spotify.com/track/4QEKHVGAmElwyVxRv80iqk)
+![Arja Koriseva!](https://i.scdn.co/image/ab67616d00001e02bc990112e36b66066a1dc891)
+
+## [Bonnie Tyler: Holding Out for a Hero - From "Footloose" Soundtrack](https://open.spotify.com/track/5Hyr47BBGpvOfcykSCcaw9)
+![Bonnie Tyler!](https://i.scdn.co/image/ab67616d00001e02d2675cb6847d1b1da9fc28a3)
+
+## [Anna Bergendahl: Higher Power](https://open.spotify.com/track/5X72zZ8sbbYXXEARdbZpgG)
+![Anna Bergendahl!](https://i.scdn.co/image/ab67616d00001e02d8d6a818c9deb1f516cd1cb4)
+
+## [Kaija Koo: Ajoin koko yön](https://open.spotify.com/track/6KhWXvpauFwEyxqg8f5hx4)
+![Kaija Koo!](https://i.scdn.co/image/ab67616d00001e02d9574b788034fd5f2ddc5c94)
+
+## [Millennium Project: Che Guevara 2K18](https://open.spotify.com/track/0hujzXTF2t4hmFDaaC3nh6)
+![Millennium Project!](https://i.scdn.co/image/ab67616d00001e0237cb95ce1a499038cc4ad6a5)
+
+## [Alessandra: Queen of Kings](https://open.spotify.com/track/14LdhxElpZS0rKVV4nxtdA)
+![Alessandra!](https://i.scdn.co/image/ab67616d00001e0289a8d6b547ec327bef9d395d)
+
+## [A.W. Yrjänä: Juuret](https://open.spotify.com/track/1TAtBUmoeHQfRMYb2eRuZv)
+![A.W. Yrjänä!](https://i.scdn.co/image/ab67616d00001e028d79932f4ea0c14052903b61)
+
+## [Anna Puu: Rakkaus tappaa](https://open.spotify.com/track/1v0MVxPYvBYLsS6rQnV9nq)
+![Anna Puu!](https://i.scdn.co/image/ab67616d00001e02e0dfa42c700047d6478f1c7b)
