@@ -1,4 +1,10 @@
-My monthly top tracks, updated on 4/26/2024, 1:06:46 AM
+My monthly top tracks, updated on 5/3/2024, 1:09:56 AM
+
+## [THE ROOP: Simple Joy](https://open.spotify.com/track/7GzGSFJhna6hC0szlnB1U4)
+![THE ROOP!](https://i.scdn.co/image/ab67616d00001e02e38bded7ba1027ce9dfd6ac1)
+
+## [Baby Lasagna: Rim Tim Tagi Dim](https://open.spotify.com/track/5TswDbxMnxptgFTf6ZxvXQ)
+![Baby Lasagna!](https://i.scdn.co/image/ab67616d00001e02499140117cbdffaca51e02b5)
 
 ## [The Weeknd: Blinding Lights](https://open.spotify.com/track/0VjIjW4GlUZAMYd2vXMi3b)
 ![The Weeknd!](https://i.scdn.co/image/ab67616d00001e028863bc11d2aa12b54f5aeb36)
@@ -9,53 +15,47 @@ My monthly top tracks, updated on 4/26/2024, 1:06:46 AM
 ## [touko: fix](https://open.spotify.com/track/2cGv0t9QI8jsShRDp8GI41)
 ![touko!](https://i.scdn.co/image/ab67616d00001e02639876b9c33d5f53fc6cd8df)
 
-## [Erik Satie: Gnossienne: No.1 (Satie Reworks) - Spotify Singles](https://open.spotify.com/track/2iADUGfIsYKXNmZtkxScdH)
-![Erik Satie!](https://i.scdn.co/image/ab67616d00001e02f471c61aee3536f72af14f5f)
+## [VICTORIA: Tears Getting Sober](https://open.spotify.com/track/3kmCuZAff2sc7KIm2OPG1z)
+![VICTORIA!](https://i.scdn.co/image/ab67616d00001e02777d6e99f863241be0dd7dd0)
 
 ## [The City of Prague Philharmonic Orchestra: Theme - From "Downton Abbey"](https://open.spotify.com/track/1dsqTdFXepiboy2nkhPJ2p)
 ![The City of Prague Philharmonic Orchestra!](https://i.scdn.co/image/ab67616d00001e02a3b27c45a77d90cbcbd20537)
 
-## [Suvi Teräsniska: Niin aikaisin (Laulu rakkaudelle: Secret Song Suomi kausi 1)](https://open.spotify.com/track/3pu5rQIzQwg4vSMQrATFXl)
-![Suvi Teräsniska!](https://i.scdn.co/image/ab67616d00001e02cf41cab86df6cdcf8c99e879)
+## [Besa: TiTAN](https://open.spotify.com/track/669R9eowHoeQkrbnkUalI8)
+![Besa!](https://i.scdn.co/image/ab67616d00001e02e4c75301a3c83256799abcde)
+
+## [Olly Alexander (Years & Years): Dizzy](https://open.spotify.com/track/4GEmQTg7yfnfZoNhgpCg61)
+![Olly Alexander (Years & Years)!](https://i.scdn.co/image/ab67616d00001e02ebe77ec25e43c99d2003fff1)
+
+## [Joost: Europapa](https://open.spotify.com/track/0uHrMbMv3c78398pIANDqR)
+![Joost!](https://i.scdn.co/image/ab67616d00001e0264593914322faaf17150d522)
+
+## [Hera Björk: Scared of Heights](https://open.spotify.com/track/0Vsjlru86RuL55GX5LsnF3)
+![Hera Björk!](https://i.scdn.co/image/ab67616d00001e02a1bf483ea4e990e831249c46)
+
+## [Electric Fields: One Milkali (One Blood)](https://open.spotify.com/track/74mWVYv6xPilcalOxrQa5Y)
+![Electric Fields!](https://i.scdn.co/image/ab67616d00001e02a13930cfeefdebbc2dd9f31e)
+
+## [Alfa: Vai!](https://open.spotify.com/track/02fHDy3xEetr1EX6qw3Cas)
+![Alfa!](https://i.scdn.co/image/ab67616d00001e02aa93c622eb3c16e46bceeb88)
+
+## [Pilvi Hämäläinen: Mon chéri](https://open.spotify.com/track/04ZyzPmItwLxF1U5hYah44)
+![Pilvi Hämäläinen!](https://i.scdn.co/image/ab67616d00001e02175bb7b849f96e8a6dc1bedc)
 
 ## [Patricia Kaas: Et S'il Fallait Le Faire](https://open.spotify.com/track/068tmpCeSwnAWm3XtECRj9)
 ![Patricia Kaas!](https://i.scdn.co/image/ab67616d00001e020482d82e543eb06337f6c9a2)
 
-## [Samuli Putro: Kylmän maailman keskeltä](https://open.spotify.com/track/06ABBI9bbI3Zyc3G0oGbid)
-![Samuli Putro!](https://i.scdn.co/image/ab67616d00001e0205c74ca751cd350409741ad8)
+## [Xandee: 1 Life](https://open.spotify.com/track/07BzWbzQYDkbwBfNfVw8gX)
+![Xandee!](https://i.scdn.co/image/ab67616d00001e02a7508ab7f227f52329ffdf80)
 
-## [Liisa Akimof: Meksikolainen](https://open.spotify.com/track/0vixph8VsoALdtYNYnSRW5)
-![Liisa Akimof!](https://i.scdn.co/image/ab67616d00001e02f45d22899c9f3e40a7ac0dc3)
+## [Friderika: Kinek mondjam el vétkeimet?](https://open.spotify.com/track/0CaFSDIraBEVmqIzp4Dozl)
+![Friderika!](https://i.scdn.co/image/ab67616d00001e02155b1e4feca4cc379fd30f7a)
 
-## [touko: juhannusyö](https://open.spotify.com/track/1fhIG5TjRjNKiMZuG2UNqJ)
-![touko!](https://i.scdn.co/image/ab67616d00001e02639876b9c33d5f53fc6cd8df)
+## [Ani Lorak: Shady Lady](https://open.spotify.com/track/0DHet9TdSsdouIbOjvLf3m)
+![Ani Lorak!](https://i.scdn.co/image/ab67616d00001e02d62b39f8a860ed9c86c13eaf)
 
-## [Loreen: Euphoria - Single Version](https://open.spotify.com/track/1xN7BpTAWnZkuSLOtRP6Qc)
-![Loreen!](https://i.scdn.co/image/ab67616d00001e022eed518e2b7148e1933a672f)
+## [Kaliopi: Crno i belo](https://open.spotify.com/track/0DJ6U66PPWnbuXF84pvG1T)
+![Kaliopi!](https://i.scdn.co/image/ab67616d00001e02e263be862f822f42e10e238a)
 
-## [touko: iholla](https://open.spotify.com/track/22X2x2gumEvebwYBqKfqCx)
-![touko!](https://i.scdn.co/image/ab67616d00001e02639876b9c33d5f53fc6cd8df)
-
-## [Antti Autio: Yksin](https://open.spotify.com/track/25rs9kNYrUM9oBaR462a2o)
-![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02fda8fa8420d519b31d320306)
-
-## [touko: tietäisit vaan](https://open.spotify.com/track/2A0cZRiu1Q5OsY8ESN9qJ8)
-![touko!](https://i.scdn.co/image/ab67616d00001e02639876b9c33d5f53fc6cd8df)
-
-## [touko: interlude](https://open.spotify.com/track/2IUOQfaNlRS4ySKxZlK6i0)
-![touko!](https://i.scdn.co/image/ab67616d00001e02639876b9c33d5f53fc6cd8df)
-
-## [Arppa: Metsänpoika popparissa](https://open.spotify.com/track/3SNSLX5HQw6qG2bdcy45KZ)
-![Arppa!](https://i.scdn.co/image/ab67616d00001e029baa874763fd8c5d381b15d6)
-
-## [Samuli Putro: Ilmasta Tehtyjä](https://open.spotify.com/track/3sJMAF0TEuIs9FQcLNkW2A)
-![Samuli Putro!](https://i.scdn.co/image/ab67616d00001e02af7d160b98f41b2451ad7c62)
-
-## [touko: sumu](https://open.spotify.com/track/4CFcSh1iJZF6QmN5729dKv)
-![touko!](https://i.scdn.co/image/ab67616d00001e02639876b9c33d5f53fc6cd8df)
-
-## [Arppa: Kartta väärinpäin](https://open.spotify.com/track/4WvFvPBZ5gR5qHAeysL6d5)
-![Arppa!](https://i.scdn.co/image/ab67616d00001e029baa874763fd8c5d381b15d6)
-
-## [Isak Danielson: Good Things Come to Those Who Wait](https://open.spotify.com/track/4k392FaIeAtWi8XUyQXMvA)
-![Isak Danielson!](https://i.scdn.co/image/ab67616d00001e02effa00cdf88846f8ac22bc6e)
+## [Milan Stankovic: Ovo je Balkan](https://open.spotify.com/track/0W3XSKkaKYq38KPQPnsa9M)
+![Milan Stankovic!](https://i.scdn.co/image/ab67616d00001e020bb8c8da868ef2153a624ee3)
