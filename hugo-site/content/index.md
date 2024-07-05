@@ -1,10 +1,19 @@
-My monthly top tracks, updated on 6/28/2024, 1:12:37 AM
+My monthly top tracks, updated on 7/5/2024, 1:13:04 AM
 
 ## [Fleet Foxes: White Winter Hymnal](https://open.spotify.com/track/4XTuSMs47SIg35KxhNIUGe)
 ![Fleet Foxes!](https://i.scdn.co/image/ab67616d00001e02561726f8053f54775e7d5bfe)
 
-## [Winona Oak: Fragile Thing](https://open.spotify.com/track/6WThsZZ0AaMNm4UkBnMmiB)
-![Winona Oak!](https://i.scdn.co/image/ab67616d00001e0260fdb570dccbfa7f8c758f21)
+## [Antti Autio: Kaunein sana maailmassa](https://open.spotify.com/track/3PzLYaWNHQhQSkXzFj7nVH)
+![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02afbdd5a1a6c0dceab2c46736)
+
+## [Kielo Kärkkäinen: Valkovuokkonäyt](https://open.spotify.com/track/0XxJtrnjwv4hhLMnCYoLM7)
+![Kielo Kärkkäinen!](https://i.scdn.co/image/ab67616d00001e027c2a3f5180143d17bc56e127)
+
+## [Arppa: Juhani](https://open.spotify.com/track/1xAdwGByawd5wE7LmafKUa)
+![Arppa!](https://i.scdn.co/image/ab67616d00001e026837b01bf7be6395cb63ae72)
+
+## [Antti Autio: Yksin](https://open.spotify.com/track/5oZjAQwHaoaOPv1FouehHA)
+![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02f4b202b38565d576b9744407)
 
 ## [BÄMÄ: Bämä tulee, oletko valmis (Intro)](https://open.spotify.com/track/6kurT6qZNp5E1jBJJHZNfw)
 ![BÄMÄ!](https://i.scdn.co/image/ab67616d00001e02a89234930f46d2255707d0fc)
@@ -15,26 +24,17 @@ My monthly top tracks, updated on 6/28/2024, 1:12:37 AM
 ## [Samuli Putro: Kylmän maailman keskeltä](https://open.spotify.com/track/06ABBI9bbI3Zyc3G0oGbid)
 ![Samuli Putro!](https://i.scdn.co/image/ab67616d00001e0205c74ca751cd350409741ad8)
 
-## [Kielo Kärkkäinen: Valkovuokkonäyt](https://open.spotify.com/track/0XxJtrnjwv4hhLMnCYoLM7)
-![Kielo Kärkkäinen!](https://i.scdn.co/image/ab67616d00001e027c2a3f5180143d17bc56e127)
-
 ## [Vera Alice: Find My Way Home](https://open.spotify.com/track/1LlVklNi0WgVi4sR6A3C7C)
 ![Vera Alice!](https://i.scdn.co/image/ab67616d00001e0229b772a3a1e324f626c37f08)
 
 ## [BÄMÄ: Bämä saa](https://open.spotify.com/track/1QCh5fG5KXwepBQc8tNSCw)
 ![BÄMÄ!](https://i.scdn.co/image/ab67616d00001e02a89234930f46d2255707d0fc)
 
-## [Arppa: Juhani](https://open.spotify.com/track/1xAdwGByawd5wE7LmafKUa)
-![Arppa!](https://i.scdn.co/image/ab67616d00001e026837b01bf7be6395cb63ae72)
-
 ## [BÄMÄ: Voimaantunu](https://open.spotify.com/track/2gVBKD2K06jy3taVMNQLF5)
 ![BÄMÄ!](https://i.scdn.co/image/ab67616d00001e02a89234930f46d2255707d0fc)
 
-## [Antti Autio: Kaunein sana maailmassa](https://open.spotify.com/track/3PzLYaWNHQhQSkXzFj7nVH)
-![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02afbdd5a1a6c0dceab2c46736)
-
-## [Antti Autio: Yksin](https://open.spotify.com/track/5oZjAQwHaoaOPv1FouehHA)
-![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02f4b202b38565d576b9744407)
+## [Winona Oak: Fragile Thing](https://open.spotify.com/track/6WThsZZ0AaMNm4UkBnMmiB)
+![Winona Oak!](https://i.scdn.co/image/ab67616d00001e0260fdb570dccbfa7f8c758f21)
 
 ## [Sonja Selene: Pimeä pää](https://open.spotify.com/track/6vUPuW5dHkwCv425OTHl4B)
 ![Sonja Selene!](https://i.scdn.co/image/ab67616d00001e02e01fc3316a0c2b2b3511c41a)
