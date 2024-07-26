@@ -1,4 +1,4 @@
-My monthly top tracks, updated on 7/19/2024, 1:14:34 AM
+My monthly top tracks, updated on 7/26/2024, 1:14:10 AM
 
 ## [Meiju Suvas: Tulit niinkuin laiva](https://open.spotify.com/track/4NCjWVACjMxuqXbT3KmSr5)
 ![Meiju Suvas!](https://i.scdn.co/image/ab67616d00001e027b579226fbb67ccf54c5b2b0)
@@ -24,6 +24,9 @@ My monthly top tracks, updated on 7/19/2024, 1:14:34 AM
 ## [k.d. lang: The Air That I Breathe - 2010 Remaster](https://open.spotify.com/track/60d9qOhFfsoWA9mq7MdALx)
 ![k.d. lang!](https://i.scdn.co/image/ab67616d00001e02630d1a03acfd9583d8dc7751)
 
+## [k.d. lang: Miss Chatelaine - 2010 Remaster](https://open.spotify.com/track/3BV9F9MImXntGEFyFw6sRf)
+![k.d. lang!](https://i.scdn.co/image/ab67616d00001e02630d1a03acfd9583d8dc7751)
+
 ## [Vaya Con Dios: Time Flies](https://open.spotify.com/track/03u2vjECPrP4PMbRi2HJG7)
 ![Vaya Con Dios!](https://i.scdn.co/image/ab67616d00001e02401bed266627cf48a03493bc)
 
@@ -39,11 +42,11 @@ My monthly top tracks, updated on 7/19/2024, 1:14:34 AM
 ## [Kerkko Koskinen: Mayday](https://open.spotify.com/track/1DrmEeK5lhPayb3M7lJCRG)
 ![Kerkko Koskinen!](https://i.scdn.co/image/ab67616d00001e02537aa878685ee8cb42c678c7)
 
+## [Scandinavian Music Group: Tahdon uudet silmät](https://open.spotify.com/track/1tusMz1yphsnMz7RmZLcDF)
+![Scandinavian Music Group!](https://i.scdn.co/image/ab67616d00001e026016026c5faf37a49193e454)
+
 ## [Adele: Water Under the Bridge](https://open.spotify.com/track/2DRMuw0U0QbkVQxWxdJV3M)
 ![Adele!](https://i.scdn.co/image/ab67616d00001e027b9888dc365b8f957c63df14)
-
-## [k.d. lang: Miss Chatelaine - 2010 Remaster](https://open.spotify.com/track/3BV9F9MImXntGEFyFw6sRf)
-![k.d. lang!](https://i.scdn.co/image/ab67616d00001e02630d1a03acfd9583d8dc7751)
 
 ## [Scandinavian Music Group: Säälittävä syksy](https://open.spotify.com/track/3F6UbOfwckOIwwblt9l88g)
 ![Scandinavian Music Group!](https://i.scdn.co/image/ab67616d00001e0216fddc1efe70ab77e6b3a275)
@@ -54,8 +57,5 @@ My monthly top tracks, updated on 7/19/2024, 1:14:34 AM
 ## [Adele: Oh My God](https://open.spotify.com/track/3Kkjo3cT83cw09VJyrLNwX)
 ![Adele!](https://i.scdn.co/image/ab67616d00001e02c6b577e4c4a6d326354a89f7)
 
-## [Maija Vilkkumaa: Yhtäccii (Vain elämää kausi 10)](https://open.spotify.com/track/4kmnEYi28JvRZoquA3vsld)
-![Maija Vilkkumaa!](https://i.scdn.co/image/ab67616d00001e023a6f68eeab7d28feb6be431f)
-
-## [Gasellit: Laulu ilman sanoja (feat. ABREU)](https://open.spotify.com/track/5U6DBJXCpgbwDirAYukeHo)
-![Gasellit!](https://i.scdn.co/image/ab67616d00001e02c573a136100da4b38d5dbe38)
+## [Vesala: Elegia](https://open.spotify.com/track/3NdGZSkC8plwpTOjZgNmvN)
+![Vesala!](https://i.scdn.co/image/ab67616d00001e024dc20fc91e9653a91e9c7473)
