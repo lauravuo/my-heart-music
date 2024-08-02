@@ -1,4 +1,4 @@
-My monthly top tracks, updated on 7/26/2024, 1:14:10 AM
+My monthly top tracks, updated on 8/2/2024, 1:15:00 AM
 
 ## [Meiju Suvas: Tulit niinkuin laiva](https://open.spotify.com/track/4NCjWVACjMxuqXbT3KmSr5)
 ![Meiju Suvas!](https://i.scdn.co/image/ab67616d00001e027b579226fbb67ccf54c5b2b0)
@@ -12,19 +12,16 @@ My monthly top tracks, updated on 7/26/2024, 1:14:10 AM
 ## [Topi Sorsakoski & Agents: Päivät Ilman Sinua](https://open.spotify.com/track/0qAfCIu5wt5g9BTJtMSSc1)
 ![Topi Sorsakoski & Agents!](https://i.scdn.co/image/ab67616d00001e02e2f8473f77b4c8d38560a4b6)
 
-## [Fleet Foxes: White Winter Hymnal](https://open.spotify.com/track/4XTuSMs47SIg35KxhNIUGe)
-![Fleet Foxes!](https://i.scdn.co/image/ab67616d00001e02561726f8053f54775e7d5bfe)
-
 ## [ABBA: The Piper](https://open.spotify.com/track/5jBPAlYvSkGDz4iDW7r2FC)
 ![ABBA!](https://i.scdn.co/image/ab67616d00001e024d08fc99eff4ed52dfce91fa)
+
+## [k.d. lang: Miss Chatelaine - 2010 Remaster](https://open.spotify.com/track/3BV9F9MImXntGEFyFw6sRf)
+![k.d. lang!](https://i.scdn.co/image/ab67616d00001e02630d1a03acfd9583d8dc7751)
 
 ## [Antti Autio: Kaikki talot huojuu](https://open.spotify.com/track/5LD7bRWSWj7Co2OX7KDbVH)
 ![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02afbdd5a1a6c0dceab2c46736)
 
 ## [k.d. lang: The Air That I Breathe - 2010 Remaster](https://open.spotify.com/track/60d9qOhFfsoWA9mq7MdALx)
-![k.d. lang!](https://i.scdn.co/image/ab67616d00001e02630d1a03acfd9583d8dc7751)
-
-## [k.d. lang: Miss Chatelaine - 2010 Remaster](https://open.spotify.com/track/3BV9F9MImXntGEFyFw6sRf)
 ![k.d. lang!](https://i.scdn.co/image/ab67616d00001e02630d1a03acfd9583d8dc7751)
 
 ## [Vaya Con Dios: Time Flies](https://open.spotify.com/track/03u2vjECPrP4PMbRi2HJG7)
@@ -41,6 +38,9 @@ My monthly top tracks, updated on 7/26/2024, 1:14:10 AM
 
 ## [Kerkko Koskinen: Mayday](https://open.spotify.com/track/1DrmEeK5lhPayb3M7lJCRG)
 ![Kerkko Koskinen!](https://i.scdn.co/image/ab67616d00001e02537aa878685ee8cb42c678c7)
+
+## [Maarit: Tuuli Ja Taivas](https://open.spotify.com/track/1paP8NEjiWed6fE7Il4E0G)
+![Maarit!](https://i.scdn.co/image/ab67616d00001e02b597fec06c12a703e4460965)
 
 ## [Scandinavian Music Group: Tahdon uudet silmät](https://open.spotify.com/track/1tusMz1yphsnMz7RmZLcDF)
 ![Scandinavian Music Group!](https://i.scdn.co/image/ab67616d00001e026016026c5faf37a49193e454)
