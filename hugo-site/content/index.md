@@ -1,40 +1,46 @@
-My monthly top tracks, updated on 9/6/2024, 1:20:04 AM
+My monthly top tracks, updated on 9/13/2024, 1:21:05 AM
 
 ## [Helena Routa: Aavan meren tuolla puolen (Pride Anthem)](https://open.spotify.com/track/3XbkFw2V8tdA34EQJ0Ncnu)
 ![Helena Routa!](https://i.scdn.co/image/ab67616d00001e0293a35936ce25c1c70e63a08c)
 
-## [VIIVI: Viel yhen kerran](https://open.spotify.com/track/3ZzNcbE3sBBSRQlvU1jkqd)
-![VIIVI!](https://i.scdn.co/image/ab67616d00001e024150e702eeb5e62e7801d097)
+## [Yann Tiersen: La Plage](https://open.spotify.com/track/4ViUkL3tjDstRbeqMNZbl7)
+![Yann Tiersen!](https://i.scdn.co/image/ab67616d00001e02ed77156033ccdae280555f9d)
 
-## [Jenni Vartiainen: Viimeinen pisara (feat. Etta)](https://open.spotify.com/track/6cbIICgbxjXqt90w3xMJrH)
-![Jenni Vartiainen!](https://i.scdn.co/image/ab67616d00001e0288701029ee7c40547434f322)
-
-## [BÄMÄ: Voimaantunu](https://open.spotify.com/track/2gVBKD2K06jy3taVMNQLF5)
-![BÄMÄ!](https://i.scdn.co/image/ab67616d00001e02a89234930f46d2255707d0fc)
-
-## [Sonja Selene: Pimeä pää](https://open.spotify.com/track/6vUPuW5dHkwCv425OTHl4B)
-![Sonja Selene!](https://i.scdn.co/image/ab67616d00001e02e01fc3316a0c2b2b3511c41a)
-
-## [ABREU: Valheista kaunein](https://open.spotify.com/track/2W1fGOBi9irc3iLZb6D7Pp)
-![ABREU!](https://i.scdn.co/image/ab67616d00001e027f6cb328ca06a8b9b34c4238)
-
-## [Antti Autio: Kaunein sana maailmassa](https://open.spotify.com/track/3PzLYaWNHQhQSkXzFj7nVH)
-![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02afbdd5a1a6c0dceab2c46736)
+## [Johnny Lee Michaels: Puhtaat Valkeat Lakanat - Tunnus](https://open.spotify.com/track/3GsxvOKYbITDumZdpBe5cQ)
+![Johnny Lee Michaels!](https://i.scdn.co/image/ab67616d00001e020a154de2477922ca7f629045)
 
 ## [Antti Autio: Vittu minä kuolen tänne](https://open.spotify.com/track/00LFydK4Cq0FB6eUU38Szv)
 ![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02fda8fa8420d519b31d320306)
 
+## [Jenni Vartiainen: Viimeinen pisara (feat. Etta)](https://open.spotify.com/track/6cbIICgbxjXqt90w3xMJrH)
+![Jenni Vartiainen!](https://i.scdn.co/image/ab67616d00001e0288701029ee7c40547434f322)
+
+## [Suvi Teräsniska: Kaikki joiden jäljet säästin](https://open.spotify.com/track/4pkQJ4l1ji28Drvfr5ZE67)
+![Suvi Teräsniska!](https://i.scdn.co/image/ab67616d00001e029a79a3a8e2d938120fd38417)
+
+## [Antti Autio: Yksin](https://open.spotify.com/track/25rs9kNYrUM9oBaR462a2o)
+![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02fda8fa8420d519b31d320306)
+
+## [ABREU: Valheista kaunein](https://open.spotify.com/track/2W1fGOBi9irc3iLZb6D7Pp)
+![ABREU!](https://i.scdn.co/image/ab67616d00001e027f6cb328ca06a8b9b34c4238)
+
+## [Anna Puu: Rakkaus tappaa](https://open.spotify.com/track/1v0MVxPYvBYLsS6rQnV9nq)
+![Anna Puu!](https://i.scdn.co/image/ab67616d00001e02e0dfa42c700047d6478f1c7b)
+
 ## [Anna Puu: 2020](https://open.spotify.com/track/0GqFfjQLx1294EupKJnhhh)
 ![Anna Puu!](https://i.scdn.co/image/ab67616d00001e027b02a07ebb2a8fae37c885fa)
 
-## [Edu Kettunen: Kone älä hyydy](https://open.spotify.com/track/0d7165EGxkTLPEWqlDnB39)
-![Edu Kettunen!](https://i.scdn.co/image/ab67616d00001e02408eaab6b379c4b718488f7e)
+## [Millennium Project: Che Guevara 2K18](https://open.spotify.com/track/0hujzXTF2t4hmFDaaC3nh6)
+![Millennium Project!](https://i.scdn.co/image/ab67616d00001e0237cb95ce1a499038cc4ad6a5)
 
-## [Päivi Hirvonen: Kallio](https://open.spotify.com/track/1xGbGyCVDN07LUt3wfstg2)
-![Päivi Hirvonen!](https://i.scdn.co/image/ab67616d00001e02be126bd564b1f86dfcce3c21)
+## [Pasi ja Anssi: Bambina (WTF)](https://open.spotify.com/track/3BABTkGs0AIECWbwswLegi)
+![Pasi ja Anssi!](https://i.scdn.co/image/ab67616d00001e02f88bbf6a26f3bc1489c596ee)
 
-## [VIIVI: Ihana kipu](https://open.spotify.com/track/4EXBxZeqKIayJa65KtAwZw)
-![VIIVI!](https://i.scdn.co/image/ab67616d00001e02b507aa18fdf4dab1129f06e2)
+## [ABREU: Huuliharppu (Antonio) [Vain elämää kausi 12]](https://open.spotify.com/track/5HBo7k1XiCzJ7RY9LcZWkD)
+![ABREU!](https://i.scdn.co/image/ab67616d00001e0234017f2a4e73a9d6311f005b)
+
+## [Kaija Koo: Ajoin koko yön](https://open.spotify.com/track/6KhWXvpauFwEyxqg8f5hx4)
+![Kaija Koo!](https://i.scdn.co/image/ab67616d00001e02d9574b788034fd5f2ddc5c94)
 
 ## [Earth, Wind & Fire: September](https://open.spotify.com/track/2grjqo0Frpf2okIBiifQKs)
 ![Earth, Wind & Fire!](https://i.scdn.co/image/ab67616d00001e024dd033f4cf3a0a58059cde69)
@@ -42,20 +48,14 @@ My monthly top tracks, updated on 9/6/2024, 1:20:04 AM
 ## [Ragni Malmstén: Mä laihdutan](https://open.spotify.com/track/681BDMtpCQhVM1Y2R0Z53L)
 ![Ragni Malmstén!](https://i.scdn.co/image/ab67616d00001e0237d893f654756ce4c0996c28)
 
-## [BÄMÄ: Jumala on muija](https://open.spotify.com/track/73oMNbt5BkihL2uAs0qpWA)
-![BÄMÄ!](https://i.scdn.co/image/ab67616d00001e02a89234930f46d2255707d0fc)
+## [VIIVI: Viel yhen kerran](https://open.spotify.com/track/3ZzNcbE3sBBSRQlvU1jkqd)
+![VIIVI!](https://i.scdn.co/image/ab67616d00001e024150e702eeb5e62e7801d097)
 
-## [Anna Puu: Rakkaus tappaa](https://open.spotify.com/track/1v0MVxPYvBYLsS6rQnV9nq)
-![Anna Puu!](https://i.scdn.co/image/ab67616d00001e02e0dfa42c700047d6478f1c7b)
-
-## [Nebulossa: ZORRA](https://open.spotify.com/track/4ypCNolz6aRYZPO3UOGp8Z)
-![Nebulossa!](https://i.scdn.co/image/ab67616d00001e02ea9b1f22906119b42edf93f7)
+## [jambo: Suomalainen Superstara](https://open.spotify.com/track/4S61u0InVCx79RqYYMLTgC)
+![jambo!](https://i.scdn.co/image/ab67616d00001e02d232b5aae65e7d0d62494d1c)
 
 ## [Arppa: Kerran Turussa](https://open.spotify.com/track/55J56tUUVe1FdkvrNvOeq5)
 ![Arppa!](https://i.scdn.co/image/ab67616d00001e020e08aeda5691fbe321580313)
-
-## [Antti Autio: Yksin](https://open.spotify.com/track/5oZjAQwHaoaOPv1FouehHA)
-![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02f4b202b38565d576b9744407)
 
 ## [Tobias Rahim: STOR MAND (feat. andreas odbjerg)](https://open.spotify.com/track/0BGEImCBesJKIm5kZ0fOkH)
 ![Tobias Rahim!](https://i.scdn.co/image/ab67616d00001e02b73e99c07db9432256d0ac9a)
