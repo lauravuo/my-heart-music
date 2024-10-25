@@ -1,61 +1,61 @@
-My monthly top tracks, updated on 10/18/2024, 1:24:57 AM
+My monthly top tracks, updated on 10/25/2024, 1:25:22 AM
 
-## [Marjorie: Korttitalo Vaan](https://open.spotify.com/track/5IpDyqcLqyvTTwjBm8DvjO)
-![Marjorie!](https://i.scdn.co/image/ab67616d00001e0208b41cfeadf553354b7c44b1)
-
-## [Antti Raiski: Katseesi polttaa Julia](https://open.spotify.com/track/06IBbeh6k0LE7RVreWXqfZ)
-![Antti Raiski!](https://i.scdn.co/image/ab67616d00001e02b4c5ca76247f53d79ed87421)
-
-## [Kaija Pietilä: Sydämensuojeluvaisto](https://open.spotify.com/track/1Fgv5ixS6y2qEktJFwvslQ)
-![Kaija Pietilä!](https://i.scdn.co/image/ab67616d00001e02139face0205b9600a26e0164)
+## [Arppa: Hyvä päivä](https://open.spotify.com/track/6v642ti9owE5DtiNcBQslu)
+![Arppa!](https://i.scdn.co/image/ab67616d00001e027439359f468e70f74945f916)
 
 ## [Arppa: Johtotähti](https://open.spotify.com/track/4wv13shDR1r4RSL0sEcZfX)
 ![Arppa!](https://i.scdn.co/image/ab67616d00001e027439359f468e70f74945f916)
 
-## [Anna Eriksson: Lähden lentoon](https://open.spotify.com/track/0guYqi5Dfq4SZcaIH8wTfT)
-![Anna Eriksson!](https://i.scdn.co/image/ab67616d00001e02665e2995e21aa4259cd5f456)
+## [Arppa: Kavereita, Hilma](https://open.spotify.com/track/0N1WDRZ2r5oQhsxaEYXw4i)
+![Arppa!](https://i.scdn.co/image/ab67616d00001e027439359f468e70f74945f916)
 
-## [Pino D'Angiò: Ma quale idea](https://open.spotify.com/track/0nHdPB5NA4xkoDoSLbREwD)
-![Pino D'Angiò!](https://i.scdn.co/image/ab67616d00001e02ef8601480405c3eeb7351780)
+## [Arppa: Kerran Turussa](https://open.spotify.com/track/3qhCMiDm12jl18mMNe1i5R)
+![Arppa!](https://i.scdn.co/image/ab67616d00001e027439359f468e70f74945f916)
 
-## [Virve Rosti: Rahaa, rahaa, rahaa! - Money, Money. Money](https://open.spotify.com/track/0s5RpJvNMvxmhPKHyMVFsn)
-![Virve Rosti!](https://i.scdn.co/image/ab67616d00001e025db49fb651393890cc6fd766)
+## [Arppa: Purppurat silmillä](https://open.spotify.com/track/7IxSngIWJgndEbA6IHvP1x)
+![Arppa!](https://i.scdn.co/image/ab67616d00001e027439359f468e70f74945f916)
 
-## [Upos: Maanantai](https://open.spotify.com/track/0sSQuyqCLxRb1lKYIRh3qB)
-![Upos!](https://i.scdn.co/image/ab67616d00001e02a68f778930dac79486fabe35)
+## [Arppa: Missä sä oot](https://open.spotify.com/track/5HOfloc2j0lHmZfmUxtTdJ)
+![Arppa!](https://i.scdn.co/image/ab67616d00001e027439359f468e70f74945f916)
 
-## [Matti Esko: Ei itkut enää auta - the Days of Pearly Spencer](https://open.spotify.com/track/18MN2yomdpg6DlY7aeFUbg)
-![Matti Esko!](https://i.scdn.co/image/ab67616d00001e0294e67c1ce34de40637c36e4d)
+## [Arppa: Muovipussi kummittelee](https://open.spotify.com/track/5eAfqFEZwsOxNPbNxJgsao)
+![Arppa!](https://i.scdn.co/image/ab67616d00001e027439359f468e70f74945f916)
 
-## [Meiju Suvas: Ystäväsi aina](https://open.spotify.com/track/1IQYh5Zv4kAgMBAarXTq8r)
-![Meiju Suvas!](https://i.scdn.co/image/ab67616d00001e02e7740fe55ddaa4cca2e8bc96)
+## [Arppa: Vasenta kaistaa](https://open.spotify.com/track/4gqOoL1HMTb8GsIS9knoE0)
+![Arppa!](https://i.scdn.co/image/ab67616d00001e027439359f468e70f74945f916)
 
-## [Jari & Taika: Feisbuugie](https://open.spotify.com/track/1IRDWWuCFuwPLVmnSE2Uhm)
-![Jari & Taika!](https://i.scdn.co/image/ab67616d00001e02f86178511f8edca6387db8ce)
+## [Arppa: Hannu](https://open.spotify.com/track/7FHZaSppDr5FdDOcTufTBy)
+![Arppa!](https://i.scdn.co/image/ab67616d00001e027439359f468e70f74945f916)
 
-## [Everything But The Girl: Missing](https://open.spotify.com/track/1LLYmUrNeb77HTwtr4e2Wr)
-![Everything But The Girl!](https://i.scdn.co/image/ab67616d00001e02202e3b9e622740e2cfee3d70)
+## [Mads Langer: Ikaros I Kaos I Os](https://open.spotify.com/track/1DHUbdT2DbMIFDvbKPMcDL)
+![Mads Langer!](https://i.scdn.co/image/ab67616d00001e02b0b34281c976b33003e48834)
 
-## [Jaana Lammi: Mansikkakesä](https://open.spotify.com/track/1jEHcGM8n0keGVbrC9DcHw)
-![Jaana Lammi!](https://i.scdn.co/image/ab67616d00001e02a98b7db49d1e9d7b7501a047)
+## [Mads Langer: Helt Deroppe](https://open.spotify.com/track/5VDxx9I8MoOJ9V63yBLzeG)
+![Mads Langer!](https://i.scdn.co/image/ab67616d00001e02b0b34281c976b33003e48834)
 
-## [LULUA: Lulu](https://open.spotify.com/track/1jS9QQgGYKS79shpcpGaPk)
-![LULUA!](https://i.scdn.co/image/ab67616d00001e02bb19b1082925fac19791d808)
+## [Mads Langer: Regn Over Gudhjem](https://open.spotify.com/track/0pRv9ORNo1nB2BevblYtzm)
+![Mads Langer!](https://i.scdn.co/image/ab67616d00001e02b0b34281c976b33003e48834)
 
-## [Jorma Kaariainen: Oletko Se Mitä Luulen](https://open.spotify.com/track/1lpwq0yotLT99314QLWB0B)
-![Jorma Kaariainen!](https://i.scdn.co/image/ab67616d00001e02f99218d01721e106ce1ba361)
+## [Mads Langer: Vi Er Der Ikke](https://open.spotify.com/track/0y1sUYZ8DGBsJWnZWhwKpa)
+![Mads Langer!](https://i.scdn.co/image/ab67616d00001e02b0b34281c976b33003e48834)
 
-## [Journey: Open Arms](https://open.spotify.com/track/1m2INxep6LfNa25OEg5jZl)
-![Journey!](https://i.scdn.co/image/ab67616d00001e020f6ce5c138493ac768d9afc8)
+## [Mads Langer: Ørkenregn](https://open.spotify.com/track/3WUnnYKwOTWVso1ekH77Qd)
+![Mads Langer!](https://i.scdn.co/image/ab67616d00001e02b0b34281c976b33003e48834)
 
-## [Boz Scaggs: Lowdown](https://open.spotify.com/track/20MxJN12WEqU5eWsuCrwM5)
-![Boz Scaggs!](https://i.scdn.co/image/ab67616d00001e0237dedf45abb08250f184faf9)
+## [Mads Langer: Ukendt Land](https://open.spotify.com/track/54k6HKHLKp0c6SV4dgJeVY)
+![Mads Langer!](https://i.scdn.co/image/ab67616d00001e022a3649498730f643fee2f37c)
 
-## [Lenny Kravitz: American Woman](https://open.spotify.com/track/2BdSaGVMxZzEeJYjjrlo6n)
-![Lenny Kravitz!](https://i.scdn.co/image/ab67616d00001e02550699c44dd74a7663c6ebfa)
+## [Mads Langer: Lånt Tid](https://open.spotify.com/track/7F3yhU6IH7WgFnTDuRwQqz)
+![Mads Langer!](https://i.scdn.co/image/ab67616d00001e02b0b34281c976b33003e48834)
 
-## [Heli Ruotsalainen: Unelmani](https://open.spotify.com/track/2KvhSZD10NwzNvrSAFRBV5)
-![Heli Ruotsalainen!](https://i.scdn.co/image/ab67616d00001e02bb53bad31a93822b887a1f05)
+## [Mads Langer: Lejlighed på 5. Sal](https://open.spotify.com/track/7FUFM4UMy3kiEJf0PScQ7V)
+![Mads Langer!](https://i.scdn.co/image/ab67616d00001e02b0b34281c976b33003e48834)
 
-## [J. Karjalainen Yhtyeineen: Laulumies](https://open.spotify.com/track/2M2T51iL8KWA6IQDPfCXvG)
-![J. Karjalainen Yhtyeineen!](https://i.scdn.co/image/ab67616d00001e02381c9492a053325a48804294)
+## [Mads Langer: Trækfugl](https://open.spotify.com/track/7cdn7jsqRzSrBYQx3luxz3)
+![Mads Langer!](https://i.scdn.co/image/ab67616d00001e02b0b34281c976b33003e48834)
+
+## [Mads Langer: Fartblind](https://open.spotify.com/track/0SJIfsna6vM7OnHmyyEbZu)
+![Mads Langer!](https://i.scdn.co/image/ab67616d00001e02b0b34281c976b33003e48834)
+
+## [Mads Langer: Drømmeland](https://open.spotify.com/track/27B0iy2liSPL0Ltp4rncW0)
+![Mads Langer!](https://i.scdn.co/image/ab67616d00001e026bb9ffefd065785afba33c15)
