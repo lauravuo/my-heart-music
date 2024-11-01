@@ -1,4 +1,4 @@
-My monthly top tracks, updated on 10/25/2024, 1:25:22 AM
+My monthly top tracks, updated on 11/1/2024, 1:39:10 AM
 
 ## [Arppa: Hyvä päivä](https://open.spotify.com/track/6v642ti9owE5DtiNcBQslu)
 ![Arppa!](https://i.scdn.co/image/ab67616d00001e027439359f468e70f74945f916)
