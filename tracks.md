@@ -1,4 +1,4 @@
-My monthly top tracks, updated on 11/1/2024, 1:39:10 AM
+My monthly top tracks, updated on 11/8/2024, 1:23:35 AM
 
 ## [Arppa: Hyvä päivä](https://open.spotify.com/track/6v642ti9owE5DtiNcBQslu)
 ![Arppa!](https://i.scdn.co/image/ab67616d00001e027439359f468e70f74945f916)
@@ -6,16 +6,13 @@ My monthly top tracks, updated on 11/1/2024, 1:39:10 AM
 ## [Arppa: Johtotähti](https://open.spotify.com/track/4wv13shDR1r4RSL0sEcZfX)
 ![Arppa!](https://i.scdn.co/image/ab67616d00001e027439359f468e70f74945f916)
 
-## [Arppa: Kavereita, Hilma](https://open.spotify.com/track/0N1WDRZ2r5oQhsxaEYXw4i)
-![Arppa!](https://i.scdn.co/image/ab67616d00001e027439359f468e70f74945f916)
-
 ## [Arppa: Kerran Turussa](https://open.spotify.com/track/3qhCMiDm12jl18mMNe1i5R)
 ![Arppa!](https://i.scdn.co/image/ab67616d00001e027439359f468e70f74945f916)
 
-## [Arppa: Purppurat silmillä](https://open.spotify.com/track/7IxSngIWJgndEbA6IHvP1x)
+## [Arppa: Kavereita, Hilma](https://open.spotify.com/track/0N1WDRZ2r5oQhsxaEYXw4i)
 ![Arppa!](https://i.scdn.co/image/ab67616d00001e027439359f468e70f74945f916)
 
-## [Arppa: Missä sä oot](https://open.spotify.com/track/5HOfloc2j0lHmZfmUxtTdJ)
+## [Arppa: Purppurat silmillä](https://open.spotify.com/track/7IxSngIWJgndEbA6IHvP1x)
 ![Arppa!](https://i.scdn.co/image/ab67616d00001e027439359f468e70f74945f916)
 
 ## [Arppa: Muovipussi kummittelee](https://open.spotify.com/track/5eAfqFEZwsOxNPbNxJgsao)
@@ -24,14 +21,23 @@ My monthly top tracks, updated on 11/1/2024, 1:39:10 AM
 ## [Arppa: Vasenta kaistaa](https://open.spotify.com/track/4gqOoL1HMTb8GsIS9knoE0)
 ![Arppa!](https://i.scdn.co/image/ab67616d00001e027439359f468e70f74945f916)
 
+## [Arppa: Missä sä oot](https://open.spotify.com/track/5HOfloc2j0lHmZfmUxtTdJ)
+![Arppa!](https://i.scdn.co/image/ab67616d00001e027439359f468e70f74945f916)
+
 ## [Arppa: Hannu](https://open.spotify.com/track/7FHZaSppDr5FdDOcTufTBy)
 ![Arppa!](https://i.scdn.co/image/ab67616d00001e027439359f468e70f74945f916)
+
+## [Suomalaisia Lastenlauluja: Pieni ankanpoikanen](https://open.spotify.com/track/4qtP9uTXqTJ99xevfpLR8W)
+![Suomalaisia Lastenlauluja!](https://i.scdn.co/image/ab67616d00001e0229f85b05c1e46f42d84c866d)
 
 ## [Mads Langer: Ikaros I Kaos I Os](https://open.spotify.com/track/1DHUbdT2DbMIFDvbKPMcDL)
 ![Mads Langer!](https://i.scdn.co/image/ab67616d00001e02b0b34281c976b33003e48834)
 
-## [Mads Langer: Helt Deroppe](https://open.spotify.com/track/5VDxx9I8MoOJ9V63yBLzeG)
+## [Mads Langer: Fartblind](https://open.spotify.com/track/0SJIfsna6vM7OnHmyyEbZu)
 ![Mads Langer!](https://i.scdn.co/image/ab67616d00001e02b0b34281c976b33003e48834)
+
+## [Päivi Hirvonen: Metsän Tyttö](https://open.spotify.com/track/0ovucp271D09aRUCIGcdMm)
+![Päivi Hirvonen!](https://i.scdn.co/image/ab67616d00001e0207452eb3f5573419ba024561)
 
 ## [Mads Langer: Regn Over Gudhjem](https://open.spotify.com/track/0pRv9ORNo1nB2BevblYtzm)
 ![Mads Langer!](https://i.scdn.co/image/ab67616d00001e02b0b34281c976b33003e48834)
@@ -39,23 +45,17 @@ My monthly top tracks, updated on 11/1/2024, 1:39:10 AM
 ## [Mads Langer: Vi Er Der Ikke](https://open.spotify.com/track/0y1sUYZ8DGBsJWnZWhwKpa)
 ![Mads Langer!](https://i.scdn.co/image/ab67616d00001e02b0b34281c976b33003e48834)
 
+## [Gabriel Fauré: Requiem, Op. 48: I. Introït](https://open.spotify.com/track/2GJXJijqRvarqrz7AtrAFK)
+![Gabriel Fauré!](https://i.scdn.co/image/ab67616d00001e02d7bce1b0a4b8c9203d666fe2)
+
 ## [Mads Langer: Ørkenregn](https://open.spotify.com/track/3WUnnYKwOTWVso1ekH77Qd)
 ![Mads Langer!](https://i.scdn.co/image/ab67616d00001e02b0b34281c976b33003e48834)
 
-## [Mads Langer: Ukendt Land](https://open.spotify.com/track/54k6HKHLKp0c6SV4dgJeVY)
-![Mads Langer!](https://i.scdn.co/image/ab67616d00001e022a3649498730f643fee2f37c)
+## [Kipparikvartetti: Pieni ankanpoikanen](https://open.spotify.com/track/47fZggyjcBVOVWgYmtfBS8)
+![Kipparikvartetti!](https://i.scdn.co/image/ab67616d00001e02366f13b442af99a1181873c6)
 
-## [Mads Langer: Lånt Tid](https://open.spotify.com/track/7F3yhU6IH7WgFnTDuRwQqz)
-![Mads Langer!](https://i.scdn.co/image/ab67616d00001e02b0b34281c976b33003e48834)
+## [Meiju Suvas: Tulit niinkuin laiva](https://open.spotify.com/track/4NCjWVACjMxuqXbT3KmSr5)
+![Meiju Suvas!](https://i.scdn.co/image/ab67616d00001e027b579226fbb67ccf54c5b2b0)
 
-## [Mads Langer: Lejlighed på 5. Sal](https://open.spotify.com/track/7FUFM4UMy3kiEJf0PScQ7V)
-![Mads Langer!](https://i.scdn.co/image/ab67616d00001e02b0b34281c976b33003e48834)
-
-## [Mads Langer: Trækfugl](https://open.spotify.com/track/7cdn7jsqRzSrBYQx3luxz3)
-![Mads Langer!](https://i.scdn.co/image/ab67616d00001e02b0b34281c976b33003e48834)
-
-## [Mads Langer: Fartblind](https://open.spotify.com/track/0SJIfsna6vM7OnHmyyEbZu)
-![Mads Langer!](https://i.scdn.co/image/ab67616d00001e02b0b34281c976b33003e48834)
-
-## [Mads Langer: Drømmeland](https://open.spotify.com/track/27B0iy2liSPL0Ltp4rncW0)
-![Mads Langer!](https://i.scdn.co/image/ab67616d00001e026bb9ffefd065785afba33c15)
+## [Ray Charles: That Spirit Of Christmas - Remastered](https://open.spotify.com/track/4WzyRXz0L8nCKGI8fisADh)
+![Ray Charles!](https://i.scdn.co/image/ab67616d00001e02c9153abcf80270ce69b288fa)
