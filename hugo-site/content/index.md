@@ -1,4 +1,4 @@
-My monthly top tracks, updated on 11/8/2024, 1:23:35 AM
+My monthly top tracks, updated on 11/15/2024, 1:37:10 AM
 
 ## [Arppa: Hyvä päivä](https://open.spotify.com/track/6v642ti9owE5DtiNcBQslu)
 ![Arppa!](https://i.scdn.co/image/ab67616d00001e027439359f468e70f74945f916)
@@ -51,11 +51,11 @@ My monthly top tracks, updated on 11/8/2024, 1:23:35 AM
 ## [Mads Langer: Ørkenregn](https://open.spotify.com/track/3WUnnYKwOTWVso1ekH77Qd)
 ![Mads Langer!](https://i.scdn.co/image/ab67616d00001e02b0b34281c976b33003e48834)
 
+## [VICTORIA: Tears Getting Sober](https://open.spotify.com/track/3kmCuZAff2sc7KIm2OPG1z)
+![VICTORIA!](https://i.scdn.co/image/ab67616d00001e02777d6e99f863241be0dd7dd0)
+
 ## [Kipparikvartetti: Pieni ankanpoikanen](https://open.spotify.com/track/47fZggyjcBVOVWgYmtfBS8)
 ![Kipparikvartetti!](https://i.scdn.co/image/ab67616d00001e02366f13b442af99a1181873c6)
 
 ## [Meiju Suvas: Tulit niinkuin laiva](https://open.spotify.com/track/4NCjWVACjMxuqXbT3KmSr5)
 ![Meiju Suvas!](https://i.scdn.co/image/ab67616d00001e027b579226fbb67ccf54c5b2b0)
-
-## [Ray Charles: That Spirit Of Christmas - Remastered](https://open.spotify.com/track/4WzyRXz0L8nCKGI8fisADh)
-![Ray Charles!](https://i.scdn.co/image/ab67616d00001e02c9153abcf80270ce69b288fa)
