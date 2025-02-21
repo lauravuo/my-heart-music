@@ -1,4 +1,4 @@
-My monthly top tracks, updated on 2/14/2025, 1:24:24 AM
+My monthly top tracks, updated on 2/21/2025, 1:25:35 AM
 
 ## [Pilven Piirtäjät: Päästäkää mut telkkariin](https://open.spotify.com/track/6jK8wVVVCfrom2Lv590jGh)
 ![Pilven Piirtäjät!](https://i.scdn.co/image/ab67616d00001e02b5993d48fd9e04f33bafc7e9)
@@ -15,17 +15,32 @@ My monthly top tracks, updated on 2/14/2025, 1:24:24 AM
 ## [Lala Salama: Kuva susta](https://open.spotify.com/track/4AMBgN51V6bgcQQch1GVM3)
 ![Lala Salama!](https://i.scdn.co/image/ab67616d00001e02f4abeaf5c0034e79d66cca9e)
 
+## [Saara Törmä: Kääretorttu](https://open.spotify.com/track/6LyF2fjteau0vri1xfTK8Y)
+![Saara Törmä!](https://i.scdn.co/image/ab67616d00001e02eed1a5dffb91d7087f89bf98)
+
+## [Figaro: Poikkis](https://open.spotify.com/track/4dzuW2kmsgI9xjYC8WYRzJ)
+![Figaro!](https://i.scdn.co/image/ab67616d00001e02b9e0135dda05ffb704e54d29)
+
+## [Kuunkuiskaajat: Äänekäs sydän](https://open.spotify.com/track/0l9X2GCr08AFDWxz49JCts)
+![Kuunkuiskaajat!](https://i.scdn.co/image/ab67616d00001e02bc788c6785cc19491655cc89)
+
+## [Sara: Ikuisesti](https://open.spotify.com/track/0vJ9TkQr4x8NNXfP49DZFm)
+![Sara!](https://i.scdn.co/image/ab67616d00001e021d772d05412d86ec2e1b3415)
+
 ## [Scandinavian Music Group: Ajatuksissani](https://open.spotify.com/track/16uF4aBvojwmoQpRIrRHG1)
 ![Scandinavian Music Group!](https://i.scdn.co/image/ab67616d00001e0295e1a068793fc588a34c1faf)
 
-## [Sonja Selene: Mikä tarina](https://open.spotify.com/track/4ylmzrJfqLvLIomOQO7Lyn)
-![Sonja Selene!](https://i.scdn.co/image/ab67616d00001e020931d3841c43f8fe02191758)
+## [Vella: All My Love](https://open.spotify.com/track/31g1ilceVdtqj4OHUwafmR)
+![Vella!](https://i.scdn.co/image/ab67616d00001e02ff5c258a8cf1ed4883174969)
+
+## [The Velveteers: On And On](https://open.spotify.com/track/3VdmxxN63vwuvUhG5kL52i)
+![The Velveteers!](https://i.scdn.co/image/ab67616d00001e026245426392a86203cd58a9d7)
 
 ## [Kuningasidea: Kuningasidea](https://open.spotify.com/track/3bmM0j4a1IstLoo09CX75d)
 ![Kuningasidea!](https://i.scdn.co/image/ab67616d00001e0279eb7ed3d290c96512cd5b1d)
 
-## [The Velveteers: On And On](https://open.spotify.com/track/3yGvuM7ZiPgjGbicd90rty)
-![The Velveteers!](https://i.scdn.co/image/ab67616d00001e021dd5e20275545069779aef56)
+## [Polo & Pan: Disco Nap](https://open.spotify.com/track/3o7jpoacI4FX1SlSdsOT2g)
+![Polo & Pan!](https://i.scdn.co/image/ab67616d00001e02dc038c83ccccaa2ced7b6ebc)
 
 ## [Tuomo Mannonen: Haudatkaa perhoset](https://open.spotify.com/track/3ypFMzmUthevve5q32t1CB)
 ![Tuomo Mannonen!](https://i.scdn.co/image/ab67616d00001e0292c115ac7025bfcb16c18d55)
@@ -33,29 +48,14 @@ My monthly top tracks, updated on 2/14/2025, 1:24:24 AM
 ## [Hopeasiivet: Olet kaunis ja minä vain](https://open.spotify.com/track/4h1p8nql7cnEhEnO7yi1QI)
 ![Hopeasiivet!](https://i.scdn.co/image/ab67616d00001e021bf691afd6a7bcc9a3bfba06)
 
-## [Saara Törmä: Kääretorttu](https://open.spotify.com/track/6LyF2fjteau0vri1xfTK8Y)
-![Saara Törmä!](https://i.scdn.co/image/ab67616d00001e02eed1a5dffb91d7087f89bf98)
+## [Heikkinen: En tahdo syödä enää yksikseen](https://open.spotify.com/track/4jbXdgDwJXk5LBT0WXHoA9)
+![Heikkinen!](https://i.scdn.co/image/ab67616d00001e0236cb3e881c6da0a5839efb51)
 
-## [Panda Bear: Ferry Lady](https://open.spotify.com/track/0d3jI3SmR8cFpp6fYOvyWa)
-![Panda Bear!](https://i.scdn.co/image/ab67616d00001e0211baa855593508d60cb61ea5)
+## [Loviisa: Vuori](https://open.spotify.com/track/4n7ew4Ri6BjVh7tdtdy6i6)
+![Loviisa!](https://i.scdn.co/image/ab67616d00001e0217d35d1460933f0d16835733)
 
-## [Françoise Hardy: Tous les garçons et les filles - Slow](https://open.spotify.com/track/0Yg1hSAUgd2AAneReFOVzS)
-![Françoise Hardy!](https://i.scdn.co/image/ab67616d00001e021a1679a314d4c3855881ed01)
+## [Sonja Selene: Mikä tarina](https://open.spotify.com/track/4ylmzrJfqLvLIomOQO7Lyn)
+![Sonja Selene!](https://i.scdn.co/image/ab67616d00001e020931d3841c43f8fe02191758)
 
-## [ABREU: Sytyn](https://open.spotify.com/track/0bup6XzvVJUL8wKUI0P1AP)
-![ABREU!](https://i.scdn.co/image/ab67616d00001e023a24aabe6c5e241d13c97f8f)
-
-## [Kuunkuiskaajat: Äänekäs sydän](https://open.spotify.com/track/0l9X2GCr08AFDWxz49JCts)
-![Kuunkuiskaajat!](https://i.scdn.co/image/ab67616d00001e02bc788c6785cc19491655cc89)
-
-## [Topi Sorsakoski & Agents: Päivät Ilman Sinua](https://open.spotify.com/track/0qAfCIu5wt5g9BTJtMSSc1)
-![Topi Sorsakoski & Agents!](https://i.scdn.co/image/ab67616d00001e02e2f8473f77b4c8d38560a4b6)
-
-## [Sara: Ikuisesti](https://open.spotify.com/track/0vJ9TkQr4x8NNXfP49DZFm)
-![Sara!](https://i.scdn.co/image/ab67616d00001e021d772d05412d86ec2e1b3415)
-
-## [Eve Crazy & Mar Yo: Manajan](https://open.spotify.com/track/0xBKLZpaMfRl1nB9ye6pgY)
-![Eve Crazy & Mar Yo!](https://i.scdn.co/image/ab67616d00001e0238a7fd17d93a8bda773b1db4)
-
-## [Adele: Hello](https://open.spotify.com/track/1Yk0cQdMLx5RzzFTYwmuld)
-![Adele!](https://i.scdn.co/image/ab67616d00001e027b9888dc365b8f957c63df14)
+## [Pauanne: Karjala](https://open.spotify.com/track/5a6JVBis4dOnfzCTuf3dJX)
+![Pauanne!](https://i.scdn.co/image/ab67616d00001e02193ff1952065bede5007eab8)
