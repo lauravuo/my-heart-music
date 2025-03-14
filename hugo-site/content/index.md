@@ -1,10 +1,13 @@
-My monthly top tracks, updated on 3/7/2025, 1:37:04 AM
+My monthly top tracks, updated on 3/14/2025, 1:35:58 AM
 
 ## [Sonja Selene: Pimeä pää](https://open.spotify.com/track/42Q07zrxaRW86ov8IfusrN)
 ![Sonja Selene!](https://i.scdn.co/image/ab67616d00001e02f0b96ed158ae4f424d9f24b6)
 
 ## [Sonja Selene: Mikä tarina](https://open.spotify.com/track/6Qcv22MEl9ZNB1Mo59krAJ)
 ![Sonja Selene!](https://i.scdn.co/image/ab67616d00001e02f0b96ed158ae4f424d9f24b6)
+
+## [Antti Autio: Tuhansien öitten läpi](https://open.spotify.com/track/1fHwP6cGDnER9Vtjh3fybo)
+![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02afbdd5a1a6c0dceab2c46736)
 
 ## [Sonja Selene: Jäljellä](https://open.spotify.com/track/5XuC49oVkwjKtR05BHePZ0)
 ![Sonja Selene!](https://i.scdn.co/image/ab67616d00001e02f0b96ed158ae4f424d9f24b6)
@@ -24,9 +27,6 @@ My monthly top tracks, updated on 3/7/2025, 1:37:04 AM
 ## [Sonja Selene: Saat tän kaiken](https://open.spotify.com/track/5yJx2eS2jcnLR2A4w82jCT)
 ![Sonja Selene!](https://i.scdn.co/image/ab67616d00001e02f0b96ed158ae4f424d9f24b6)
 
-## [Saara Törmä: Kääretorttu](https://open.spotify.com/track/6LyF2fjteau0vri1xfTK8Y)
-![Saara Törmä!](https://i.scdn.co/image/ab67616d00001e02eed1a5dffb91d7087f89bf98)
-
 ## [Sonja Selene: Vaaran merkkejä](https://open.spotify.com/track/6NqdZclq7qLarAxFWnUkgT)
 ![Sonja Selene!](https://i.scdn.co/image/ab67616d00001e02f0b96ed158ae4f424d9f24b6)
 
@@ -36,26 +36,26 @@ My monthly top tracks, updated on 3/7/2025, 1:37:04 AM
 ## [Vimma: Antrasiitille](https://open.spotify.com/track/4f270wrcVdCUV29Ek7HxXS)
 ![Vimma!](https://i.scdn.co/image/ab67616d00001e027cc774fd2e2a48a2a097eb10)
 
-## [Scandinavian Music Group: Ajatuksissani](https://open.spotify.com/track/2nzPSYaUMNtG2eGv2FwQfG)
-![Scandinavian Music Group!](https://i.scdn.co/image/ab67616d00001e02e46ceb7cf450ac48d56f1a47)
-
-## [Kuunkuiskaajat: Äänekäs sydän](https://open.spotify.com/track/0l9X2GCr08AFDWxz49JCts)
-![Kuunkuiskaajat!](https://i.scdn.co/image/ab67616d00001e02bc788c6785cc19491655cc89)
-
-## [Sara: Ikuisesti](https://open.spotify.com/track/0vJ9TkQr4x8NNXfP49DZFm)
-![Sara!](https://i.scdn.co/image/ab67616d00001e021d772d05412d86ec2e1b3415)
-
-## [Ringo Starr: Rosetta](https://open.spotify.com/track/1EW75a4rh00F4NIuY7bLhn)
-![Ringo Starr!](https://i.scdn.co/image/ab67616d00001e02e4e5de2fb8e11c18a8176920)
-
-## [Aleksi Ojala: Jumalan kuva](https://open.spotify.com/track/2PWZcFHHu8IHegqQhAZzyw)
-![Aleksi Ojala!](https://i.scdn.co/image/ab67616d00001e027bf64418fd81f50114e2d87d)
-
 ## [KAJ: Bara Bada Bastu](https://open.spotify.com/track/2gThkoApt6B7ajBWZRLAVv)
 ![KAJ!](https://i.scdn.co/image/ab67616d00001e02a8fdd47eb1af870f609ef3ad)
 
-## [Qing Madi: Akanchawa](https://open.spotify.com/track/2oUzn0DajLLHPgJHWL5QiE)
-![Qing Madi!](https://i.scdn.co/image/ab67616d00001e028610fc6ad4a80c6de27114f4)
+## [Ludovico Einaudi: Fly](https://open.spotify.com/track/3yuCAw61jqfyv2KzMoVdXA)
+![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e02f58c2d280edcb6931a108fbd)
 
-## [Vella: All My Love](https://open.spotify.com/track/31g1ilceVdtqj4OHUwafmR)
-![Vella!](https://i.scdn.co/image/ab67616d00001e02ff5c258a8cf1ed4883174969)
+## [Tommy Cash: Espresso Macchiato](https://open.spotify.com/track/3gWBWLw3J3XTy3QTo36GqJ)
+![Tommy Cash!](https://i.scdn.co/image/ab67616d00001e02a766fee458ae15173a226bea)
+
+## [Erika Vikman: ICH KOMME](https://open.spotify.com/track/52NFoPnzxOKPIcJIQ9mb5Q)
+![Erika Vikman!](https://i.scdn.co/image/ab67616d00001e0207725a88368174ee92ca62e4)
+
+## [Sonja Selene: Kauempaa](https://open.spotify.com/track/4bpa0xsznHUmBLKNHaoahS)
+![Sonja Selene!](https://i.scdn.co/image/ab67616d00001e02f0b96ed158ae4f424d9f24b6)
+
+## [Kyle Alessandro: Lighter](https://open.spotify.com/track/0AMoopn68aGAAaJ9qFXPnX)
+![Kyle Alessandro!](https://i.scdn.co/image/ab67616d00001e0253dc26205f84d04f5409999a)
+
+## [Antti Autio: Vittu minä kuolen tänne](https://open.spotify.com/track/00LFydK4Cq0FB6eUU38Szv)
+![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02fda8fa8420d519b31d320306)
+
+## [Antti Autio: Liikaa](https://open.spotify.com/track/0e4HnXWMW7OY0dzSvp8H8G)
+![Antti Autio!](https://i.scdn.co/image/ab67616d00001e0282ec8d95ab6b9671204f6bc4)
