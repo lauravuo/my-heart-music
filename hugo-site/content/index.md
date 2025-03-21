@@ -1,9 +1,6 @@
-My monthly top tracks, updated on 3/14/2025, 1:35:58 AM
+My monthly top tracks, updated on 3/21/2025, 1:38:58 AM
 
 ## [Sonja Selene: Pimeä pää](https://open.spotify.com/track/42Q07zrxaRW86ov8IfusrN)
-![Sonja Selene!](https://i.scdn.co/image/ab67616d00001e02f0b96ed158ae4f424d9f24b6)
-
-## [Sonja Selene: Mikä tarina](https://open.spotify.com/track/6Qcv22MEl9ZNB1Mo59krAJ)
 ![Sonja Selene!](https://i.scdn.co/image/ab67616d00001e02f0b96ed158ae4f424d9f24b6)
 
 ## [Antti Autio: Tuhansien öitten läpi](https://open.spotify.com/track/1fHwP6cGDnER9Vtjh3fybo)
@@ -30,20 +27,20 @@ My monthly top tracks, updated on 3/14/2025, 1:35:58 AM
 ## [Sonja Selene: Vaaran merkkejä](https://open.spotify.com/track/6NqdZclq7qLarAxFWnUkgT)
 ![Sonja Selene!](https://i.scdn.co/image/ab67616d00001e02f0b96ed158ae4f424d9f24b6)
 
-## [Figaro: Poikkis](https://open.spotify.com/track/6yWZJWfeXcDO81s4WM8h6U)
-![Figaro!](https://i.scdn.co/image/ab67616d00001e02f1874a3cd8bf951ad8a6f736)
+## [Sonja Selene: Mikä tarina](https://open.spotify.com/track/6Qcv22MEl9ZNB1Mo59krAJ)
+![Sonja Selene!](https://i.scdn.co/image/ab67616d00001e02f0b96ed158ae4f424d9f24b6)
 
 ## [Vimma: Antrasiitille](https://open.spotify.com/track/4f270wrcVdCUV29Ek7HxXS)
 ![Vimma!](https://i.scdn.co/image/ab67616d00001e027cc774fd2e2a48a2a097eb10)
 
 ## [KAJ: Bara Bada Bastu](https://open.spotify.com/track/2gThkoApt6B7ajBWZRLAVv)
-![KAJ!](https://i.scdn.co/image/ab67616d00001e02a8fdd47eb1af870f609ef3ad)
+![KAJ!](https://i.scdn.co/image/ab67616d00001e02beeef739e5c1c30b9539bdea)
 
 ## [Ludovico Einaudi: Fly](https://open.spotify.com/track/3yuCAw61jqfyv2KzMoVdXA)
 ![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e02f58c2d280edcb6931a108fbd)
 
-## [Tommy Cash: Espresso Macchiato](https://open.spotify.com/track/3gWBWLw3J3XTy3QTo36GqJ)
-![Tommy Cash!](https://i.scdn.co/image/ab67616d00001e02a766fee458ae15173a226bea)
+## [Tommy Cash: Espresso Macchiato](https://open.spotify.com/track/4zpNfuWJA3K4d9TS4qnOIB)
+![Tommy Cash!](https://i.scdn.co/image/ab67616d00001e029d649a151db5dd23031c3bb8)
 
 ## [Erika Vikman: ICH KOMME](https://open.spotify.com/track/52NFoPnzxOKPIcJIQ9mb5Q)
 ![Erika Vikman!](https://i.scdn.co/image/ab67616d00001e0207725a88368174ee92ca62e4)
@@ -51,11 +48,14 @@ My monthly top tracks, updated on 3/14/2025, 1:35:58 AM
 ## [Sonja Selene: Kauempaa](https://open.spotify.com/track/4bpa0xsznHUmBLKNHaoahS)
 ![Sonja Selene!](https://i.scdn.co/image/ab67616d00001e02f0b96ed158ae4f424d9f24b6)
 
-## [Kyle Alessandro: Lighter](https://open.spotify.com/track/0AMoopn68aGAAaJ9qFXPnX)
-![Kyle Alessandro!](https://i.scdn.co/image/ab67616d00001e0253dc26205f84d04f5409999a)
-
 ## [Antti Autio: Vittu minä kuolen tänne](https://open.spotify.com/track/00LFydK4Cq0FB6eUU38Szv)
 ![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02fda8fa8420d519b31d320306)
 
 ## [Antti Autio: Liikaa](https://open.spotify.com/track/0e4HnXWMW7OY0dzSvp8H8G)
 ![Antti Autio!](https://i.scdn.co/image/ab67616d00001e0282ec8d95ab6b9671204f6bc4)
+
+## [Meiju Suvas: Kova duuni on rahaa - She Works Hard for the Money](https://open.spotify.com/track/1S6CFhRkQdDpsIWWpSUPg6)
+![Meiju Suvas!](https://i.scdn.co/image/ab67616d00001e0219945e61006b47c41f425210)
+
+## [Antti Autio: Yksin](https://open.spotify.com/track/25rs9kNYrUM9oBaR462a2o)
+![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02fda8fa8420d519b31d320306)
