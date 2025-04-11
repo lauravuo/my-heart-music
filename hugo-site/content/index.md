@@ -1,25 +1,46 @@
-My monthly top tracks, updated on 4/4/2025, 1:39:15 AM
+My monthly top tracks, updated on 4/11/2025, 1:40:52 AM
 
-## [Antti Autio: Tuhansien öitten läpi](https://open.spotify.com/track/1fHwP6cGDnER9Vtjh3fybo)
-![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02afbdd5a1a6c0dceab2c46736)
+## [Benjamin Britten: War Requiem, Op. 66: I. Requiem aeternam: a. Requiem aeternam](https://open.spotify.com/track/0r5guO2MOt1Crbj3joO1rk)
+![Benjamin Britten!](https://i.scdn.co/image/ab67616d00001e02a852428ea3d3e4a05a308524)
 
-## [Antti Autio: Liikaa](https://open.spotify.com/track/0e4HnXWMW7OY0dzSvp8H8G)
-![Antti Autio!](https://i.scdn.co/image/ab67616d00001e0282ec8d95ab6b9671204f6bc4)
+## [J. Karjalainen: Kadun toisella puolella](https://open.spotify.com/track/6as8XNpbQPV4RJYbpmrkSE)
+![J. Karjalainen!](https://i.scdn.co/image/ab67616d00001e02944f40b195f2f9c95e3a7f82)
 
-## [Antti Autio: Yksin](https://open.spotify.com/track/25rs9kNYrUM9oBaR462a2o)
-![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02fda8fa8420d519b31d320306)
+## [George Frideric Handel: Messiah, HWV 56, Pt. 1: No. 1, Symphony](https://open.spotify.com/track/6oJHUETUqvql8jNMdOidwt)
+![George Frideric Handel!](https://i.scdn.co/image/ab67616d00001e02306eecca03c7d6373a6224da)
 
-## [Sir Elwoodin hiljaiset värit: Yksin](https://open.spotify.com/track/57OuBHCTUkLIITK5RjeJqd)
-![Sir Elwoodin hiljaiset värit!](https://i.scdn.co/image/ab67616d00001e0248e4278a45965dea8681458f)
+## [Haloo Helsinki!: Gardenia](https://open.spotify.com/track/7Ih2bWlEQU3vg2s28qw607)
+![Haloo Helsinki!!](https://i.scdn.co/image/ab67616d00001e02383dfe059399daa640be2a01)
 
-## [Antti Autio: Vittu minä kuolen tänne](https://open.spotify.com/track/00LFydK4Cq0FB6eUU38Szv)
-![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02fda8fa8420d519b31d320306)
+## [Lyyti: Tuolileikki](https://open.spotify.com/track/6qWZGPbYtmjAabpIUyQFpW)
+![Lyyti!](https://i.scdn.co/image/ab67616d00001e02f08cea16944e0803792e2340)
+
+## [Rosettes: Spirals](https://open.spotify.com/track/2xrxKajV6XJ7bkh1wlhKWq)
+![Rosettes!](https://i.scdn.co/image/ab67616d00001e02d69d7607e2738bc04c148ea8)
+
+## [ABBA: Eagle - Short Version](https://open.spotify.com/track/03n63nnvPKeMEKmjWJluai)
+![ABBA!](https://i.scdn.co/image/ab67616d00001e02f57547d93d7940c9be2648f8)
 
 ## [Vaya Con Dios: Time Flies](https://open.spotify.com/track/03u2vjECPrP4PMbRi2HJG7)
 ![Vaya Con Dios!](https://i.scdn.co/image/ab67616d00001e02401bed266627cf48a03493bc)
 
+## [Sir Elwoodin hiljaiset värit: Sellaista Se On](https://open.spotify.com/track/08eLaiQYS7L7jnUyZhcdCq)
+![Sir Elwoodin hiljaiset värit!](https://i.scdn.co/image/ab67616d00001e021ed8ade3f80a29034b032cb0)
+
 ## [Eva Dahlgren: Lev så](https://open.spotify.com/track/0GAY8D7SCWCASXPr98bzJv)
 ![Eva Dahlgren!](https://i.scdn.co/image/ab67616d00001e020ecb81fc5f561ea4e429de30)
+
+## [Zaz: On ira](https://open.spotify.com/track/0O7j6n6xv3XtsqAqZw0nYM)
+![Zaz!](https://i.scdn.co/image/ab67616d00001e02a26dc692f35673eb199c446f)
+
+## [Vaya Con Dios: I Don't Want To Know](https://open.spotify.com/track/0QLDsIyLpN1NBOjyhJ1tgt)
+![Vaya Con Dios!](https://i.scdn.co/image/ab67616d00001e020e900fbc8cb94d536589e11a)
+
+## [Adele: River Lea](https://open.spotify.com/track/0bqC0AqaBZKBZsjhI3y2OW)
+![Adele!](https://i.scdn.co/image/ab67616d00001e027b9888dc365b8f957c63df14)
+
+## [Antti Autio: Liikaa](https://open.spotify.com/track/0e4HnXWMW7OY0dzSvp8H8G)
+![Antti Autio!](https://i.scdn.co/image/ab67616d00001e0282ec8d95ab6b9671204f6bc4)
 
 ## [Meiju Suvas: Irti (Vain elämää kausi 13)](https://open.spotify.com/track/0fgt0VoQim7gGZTPJBn1RM)
 ![Meiju Suvas!](https://i.scdn.co/image/ab67616d00001e02532f45eefb25152ab2932eab)
@@ -27,35 +48,14 @@ My monthly top tracks, updated on 4/4/2025, 1:39:15 AM
 ## [Aki Sirkesalo: Melkein Onnellinen](https://open.spotify.com/track/0m37p0wgYjyyOxN9fmvoZa)
 ![Aki Sirkesalo!](https://i.scdn.co/image/ab67616d00001e02900b3c6a6e291a07aecc383e)
 
+## [Eva Dahlgren: Vem tänder stjärnorna](https://open.spotify.com/track/0xljZqZHvXhVfse33fQ9bK)
+![Eva Dahlgren!](https://i.scdn.co/image/ab67616d00001e020ecb81fc5f561ea4e429de30)
+
 ## [ABBA: Voulez-Vous](https://open.spotify.com/track/17OqI90oTFZ3J8PVu6j07V)
 ![ABBA!](https://i.scdn.co/image/ab67616d00001e02aa22899360d8ba6704732dec)
 
-## [Jenni Vartiainen: Kerro miltä se tuntuu](https://open.spotify.com/track/1EsLoA6bQ5RPuOr77Ytvrk)
-![Jenni Vartiainen!](https://i.scdn.co/image/ab67616d00001e020674bc63339023e640f4771a)
-
-## [k.d. lang: You're OK - 2010 Remaster](https://open.spotify.com/track/1RdnbrBkl0lmPfWEkS3136)
-![k.d. lang!](https://i.scdn.co/image/ab67616d00001e025f76af1382a1e6d5b12a7adf)
-
-## [ABREU: 20 Ave Mariaa](https://open.spotify.com/track/2SREBxoqvxhB0wQHgLeNVI)
-![ABREU!](https://i.scdn.co/image/ab67616d00001e024c3dd202d840c41b77b916da)
-
-## [Vesala: Testamentti](https://open.spotify.com/track/2pDoLxCy0aDjJtMOUjsoQu)
+## [Vesala: Pahanilmanlinnut](https://open.spotify.com/track/1CABGhTi59w3PaqfraypYf)
 ![Vesala!](https://i.scdn.co/image/ab67616d00001e02c7749b636a4699d0191fac63)
 
-## [Arppa: Juhani](https://open.spotify.com/track/33sgloGFdSgqLRUbYjAIoS)
-![Arppa!](https://i.scdn.co/image/ab67616d00001e0250a13953384e3ca76feaeeec)
-
-## [Kaija Koo: Mun sydän](https://open.spotify.com/track/37E6rUPdexxkqw63sqVLKB)
-![Kaija Koo!](https://i.scdn.co/image/ab67616d00001e026fe938e6a577215b37ca2fef)
-
-## [Topi Sorsakoski & Agents: Surujen Kitara](https://open.spotify.com/track/3To6UO8zPE78Xp90v5Jshg)
-![Topi Sorsakoski & Agents!](https://i.scdn.co/image/ab67616d00001e021955db47faf1d8a29572aec6)
-
-## [Maija Vilkkumaa: Teini](https://open.spotify.com/track/4Mqd4bOLoy6xmfojDuCd5n)
-![Maija Vilkkumaa!](https://i.scdn.co/image/ab67616d00001e028a1a59ab62ac17298f88d263)
-
-## [Aki Sirkesalo: Mielenrauhaa](https://open.spotify.com/track/4j2tAhqR0a7x0Onu7qJxIi)
-![Aki Sirkesalo!](https://i.scdn.co/image/ab67616d00001e0219dc105358941ec7d304fc65)
-
-## [Samuli Edelmann: Reunalla](https://open.spotify.com/track/55F7JOZ5FsfQD1YLPfBfMT)
-![Samuli Edelmann!](https://i.scdn.co/image/ab67616d00001e029f44ce5d053cb4aa7259d2cb)
+## [Jenni Vartiainen: Kerro miltä se tuntuu](https://open.spotify.com/track/1EsLoA6bQ5RPuOr77Ytvrk)
+![Jenni Vartiainen!](https://i.scdn.co/image/ab67616d00001e020674bc63339023e640f4771a)
