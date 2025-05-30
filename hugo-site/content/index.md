@@ -1,7 +1,10 @@
-My monthly top tracks, updated on 5/23/2025, 1:46:19 AM
+My monthly top tracks, updated on 5/30/2025, 1:44:54 AM
 
 ## [Päivi Hirvonen: Aamu](https://open.spotify.com/track/7M3mvaXojWttjms9iQ4Lwg)
 ![Päivi Hirvonen!](https://i.scdn.co/image/ab67616d00001e0211727f4232641ba3cef2614c)
+
+## [JJ: Wasted Love](https://open.spotify.com/track/321yySUTzRXUbzkRTeTzDB)
+![JJ!](https://i.scdn.co/image/ab67616d00001e0285dcb13a6a0a66590c8956fa)
 
 ## [Samu Haber: Karkki](https://open.spotify.com/track/07NKQiadRksZlcxHSIhRgy)
 ![Samu Haber!](https://i.scdn.co/image/ab67616d00001e02cedf7e56345f2175e437cd70)
@@ -9,8 +12,8 @@ My monthly top tracks, updated on 5/23/2025, 1:46:19 AM
 ## [Happoradio: Ojaan ja allikkoon](https://open.spotify.com/track/6OCKHHmm2WYFmHVxMssS3N)
 ![Happoradio!](https://i.scdn.co/image/ab67616d00001e02e28c45574308b3b2dbac6d71)
 
-## [RODEO: Paskoi miehii & paskoi duunei](https://open.spotify.com/track/7fYaA0fiSjf7kItCrltPjF)
-![RODEO!](https://i.scdn.co/image/ab67616d00001e02235060a40a0b617fc75ac9f3)
+## [Antti Autio: Vittu minä kuolen tänne](https://open.spotify.com/track/00LFydK4Cq0FB6eUU38Szv)
+![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02fda8fa8420d519b31d320306)
 
 ## [Rebekka Holi: Saippuoita haistelemaan](https://open.spotify.com/track/06wSIZPIXdSK4Xdq8tUy9V)
 ![Rebekka Holi!](https://i.scdn.co/image/ab67616d00001e023e04ea7b797d8926d296abf2)
@@ -21,20 +24,17 @@ My monthly top tracks, updated on 5/23/2025, 1:46:19 AM
 ## [Katri Ylander: Elämä on](https://open.spotify.com/track/1amuQc6v9xWbgsdq4YyaMe)
 ![Katri Ylander!](https://i.scdn.co/image/ab67616d00001e02d2359361d4659dfdf1807606)
 
-## [Giacomo Puccini: Nessun doma - Turandot](https://open.spotify.com/track/1ntATsEazvDV1jw3iiZlID)
-![Giacomo Puccini!](https://i.scdn.co/image/ab67616d00001e025e3b4ea97a73a17ef96e46c4)
-
 ## [Päivi Hirvonen: Maa palaa](https://open.spotify.com/track/1s7bEAzntevEwYyUFdhv3Z)
 ![Päivi Hirvonen!](https://i.scdn.co/image/ab67616d00001e0211727f4232641ba3cef2614c)
 
 ## [Päivi Hirvonen: Humala](https://open.spotify.com/track/1yeOpmPpuzdTdDRxE3aPS9)
 ![Päivi Hirvonen!](https://i.scdn.co/image/ab67616d00001e0211727f4232641ba3cef2614c)
 
-## [Jonas Kvarnström: The Hours - Main Theme (From "The Hours")](https://open.spotify.com/track/1zyIlp7GFeaaseaorhwdaT)
-![Jonas Kvarnström!](https://i.scdn.co/image/ab67616d00001e02556f99f59e470828165c983c)
-
 ## [Päivi Hirvonen: Rukous](https://open.spotify.com/track/25hGDlBApTc1CemrXuTaD0)
 ![Päivi Hirvonen!](https://i.scdn.co/image/ab67616d00001e0211727f4232641ba3cef2614c)
+
+## [Juha Tapio: Koska sinä](https://open.spotify.com/track/2yQ0Bvzd73KEP68uM98s3V)
+![Juha Tapio!](https://i.scdn.co/image/ab67616d00001e026de82c31c5880cf9b01a9a48)
 
 ## [Päivi Hirvonen: Toivo](https://open.spotify.com/track/35I7n1Z1LWI6SOFeXQPtPP)
 ![Päivi Hirvonen!](https://i.scdn.co/image/ab67616d00001e0211727f4232641ba3cef2614c)
@@ -48,14 +48,14 @@ My monthly top tracks, updated on 5/23/2025, 1:46:19 AM
 ## [Päivi Hirvonen: Alä tuu](https://open.spotify.com/track/5JIpRcDS2vdFWYtwedZKWA)
 ![Päivi Hirvonen!](https://i.scdn.co/image/ab67616d00001e0211727f4232641ba3cef2614c)
 
+## [Käärijä: #eurodab](https://open.spotify.com/track/5LUbJo8GHzcqlCCrE83c05)
+![Käärijä!](https://i.scdn.co/image/ab67616d00001e02b4087c51a22c3a0318f6d6e1)
+
+## [Maija Vilkkumaa: Äidinmaa](https://open.spotify.com/track/5uCR3iqke4TJ3oFchqPZyD)
+![Maija Vilkkumaa!](https://i.scdn.co/image/ab67616d00001e02b25d3547bbd023b5010d5c15)
+
 ## [Päivi Hirvonen: Metsän Tyttö](https://open.spotify.com/track/6RlKHi684pa7rIyydRQ7yc)
 ![Päivi Hirvonen!](https://i.scdn.co/image/ab67616d00001e0211727f4232641ba3cef2614c)
 
 ## [Ne Lintuizet: Kysymykset 6 & 7](https://open.spotify.com/track/6cTFtURPRLJpa4pIRhT90x)
 ![Ne Lintuizet!](https://i.scdn.co/image/ab67616d00001e027e3d1b22bba930efb751dc54)
-
-## [Kaija Koo: Räsypokka](https://open.spotify.com/track/6ebDehEKNwVlkxJz8QH0dP)
-![Kaija Koo!](https://i.scdn.co/image/ab67616d00001e0224fca24171c6ab4a8e02ab9e)
-
-## [Huhu: Syvään veteen](https://open.spotify.com/track/7157rKaldKMLkS2xQ7tjwq)
-![Huhu!](https://i.scdn.co/image/ab67616d00001e0278f492a58e20441e7192cc65)
