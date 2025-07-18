@@ -1,7 +1,4 @@
-My monthly top tracks, updated on 7/11/2025, 1:55:09 AM
-
-## [Antti Autio: Tuhansien öitten läpi](https://open.spotify.com/track/1fHwP6cGDnER9Vtjh3fybo)
-![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02afbdd5a1a6c0dceab2c46736)
+My monthly top tracks, updated on 7/18/2025, 1:58:44 AM
 
 ## [Behm: Kaiken arvoinen](https://open.spotify.com/track/04ItU6vyhnq8QHKIrYqDR1)
 ![Behm!](https://i.scdn.co/image/ab67616d00001e02eb985817f937cdb54dc4e924)
@@ -9,8 +6,8 @@ My monthly top tracks, updated on 7/11/2025, 1:55:09 AM
 ## [Jenni Vartiainen: Leima (feat. Turisti)](https://open.spotify.com/track/57Stuvnw9HYOTKsmHxk9gV)
 ![Jenni Vartiainen!](https://i.scdn.co/image/ab67616d00001e02e5e0f7752177945a78bc746e)
 
-## [Arppa: Hannu](https://open.spotify.com/track/7FHZaSppDr5FdDOcTufTBy)
-![Arppa!](https://i.scdn.co/image/ab67616d00001e027439359f468e70f74945f916)
+## [Antti Autio: Tuhansien öitten läpi](https://open.spotify.com/track/1fHwP6cGDnER9Vtjh3fybo)
+![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02afbdd5a1a6c0dceab2c46736)
 
 ## [Lady Gaga: Abracadabra](https://open.spotify.com/track/2LHNTC9QZxsL3nWpt8iaSR)
 ![Lady Gaga!](https://i.scdn.co/image/ab67616d00001e02b0860cf0a98e09663c82290c)
@@ -42,9 +39,6 @@ My monthly top tracks, updated on 7/11/2025, 1:55:09 AM
 ## [NEEA RIVER: Nightmares](https://open.spotify.com/track/4n9ahH0eliQyaEHiHs4It5)
 ![NEEA RIVER!](https://i.scdn.co/image/ab67616d00001e027dcd4b7d99c8b6766507356e)
 
-## [Anna Puu: Ota minut tällaisena kuin oon](https://open.spotify.com/track/4pz2jmxj4kdXf5n10PrKIX)
-![Anna Puu!](https://i.scdn.co/image/ab67616d00001e02668b832781db7446448f3396)
-
 ## [Topi Sorsakoski & Agents: Olet Rakkain -And I Love Her- - Remaster 2007](https://open.spotify.com/track/6BOQ2e9OiXHml0b3DIfTWU)
 ![Topi Sorsakoski & Agents!](https://i.scdn.co/image/ab67616d00001e02073628794967b1d240b9f94a)
 
@@ -59,3 +53,9 @@ My monthly top tracks, updated on 7/11/2025, 1:55:09 AM
 
 ## [Haloo Helsinki!: Gardenia](https://open.spotify.com/track/7Ih2bWlEQU3vg2s28qw607)
 ![Haloo Helsinki!!](https://i.scdn.co/image/ab67616d00001e02383dfe059399daa640be2a01)
+
+## [Sir Elwoodin hiljaiset värit: Suomineito](https://open.spotify.com/track/7wNzxk4eoFVRrG3vuaQunv)
+![Sir Elwoodin hiljaiset värit!](https://i.scdn.co/image/ab67616d00001e02df1ec7f0d5fcf736d3c8c85a)
+
+## [The Shapeshifters: Lola's Theme - Radio Edit](https://open.spotify.com/track/0J6lDdvg2ynXCmSH63jpsS)
+![The Shapeshifters!](https://i.scdn.co/image/ab67616d00001e029fbb1700681dd8f6b81c511f)
