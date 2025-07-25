@@ -1,34 +1,25 @@
-My monthly top tracks, updated on 7/18/2025, 1:58:44 AM
+My monthly top tracks, updated on 7/25/2025, 1:57:13 AM
 
 ## [Behm: Kaiken arvoinen](https://open.spotify.com/track/04ItU6vyhnq8QHKIrYqDR1)
 ![Behm!](https://i.scdn.co/image/ab67616d00001e02eb985817f937cdb54dc4e924)
 
-## [Jenni Vartiainen: Leima (feat. Turisti)](https://open.spotify.com/track/57Stuvnw9HYOTKsmHxk9gV)
-![Jenni Vartiainen!](https://i.scdn.co/image/ab67616d00001e02e5e0f7752177945a78bc746e)
+## [Topi Sorsakoski & Agents: Olet Rakkain -And I Love Her- - Remaster 2007](https://open.spotify.com/track/6BOQ2e9OiXHml0b3DIfTWU)
+![Topi Sorsakoski & Agents!](https://i.scdn.co/image/ab67616d00001e02073628794967b1d240b9f94a)
 
-## [Antti Autio: Tuhansien öitten läpi](https://open.spotify.com/track/1fHwP6cGDnER9Vtjh3fybo)
-![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02afbdd5a1a6c0dceab2c46736)
+## [Maarit: Tulitikku](https://open.spotify.com/track/0VS7jp3cxNblKRaWbvRoU3)
+![Maarit!](https://i.scdn.co/image/ab67616d00001e028cba63b8f9478a2ac9e3e5aa)
 
-## [Lady Gaga: Abracadabra](https://open.spotify.com/track/2LHNTC9QZxsL3nWpt8iaSR)
-![Lady Gaga!](https://i.scdn.co/image/ab67616d00001e02b0860cf0a98e09663c82290c)
+## [Katri Helena: Vasten auringon siltaa - Alle porte del sole](https://open.spotify.com/track/0W4Z4NkAUoaSeLVv2mOMFP)
+![Katri Helena!](https://i.scdn.co/image/ab67616d00001e02417aaaedde61d1586886c7d9)
 
-## [Erika Vikman: Elizabeth Taylor](https://open.spotify.com/track/1YAgvSwhwVyM7Fsck2CVUd)
-![Erika Vikman!](https://i.scdn.co/image/ab67616d00001e0273f21caca8abfff4ed53d7da)
+## [Katri Helena: Onnen onkija](https://open.spotify.com/track/0c5YBavBvDoEz453qYwiMv)
+![Katri Helena!](https://i.scdn.co/image/ab67616d00001e029d036f82e25e0ee9159478b6)
 
-## [Sir Elwoodin hiljaiset värit: Vanha Valokuva](https://open.spotify.com/track/1gRp4DRA2AgMwJvE5Jp9qm)
-![Sir Elwoodin hiljaiset värit!](https://i.scdn.co/image/ab67616d00001e0210b1166616159891fc28aee5)
-
-## [Scandinavian Music Group: Tahdon uudet silmät](https://open.spotify.com/track/1tusMz1yphsnMz7RmZLcDF)
-![Scandinavian Music Group!](https://i.scdn.co/image/ab67616d00001e026016026c5faf37a49193e454)
-
-## [Damiano David: Born With a Broken Heart](https://open.spotify.com/track/36r085cj95tQcGaOoPLfc5)
-![Damiano David!](https://i.scdn.co/image/ab67616d00001e02cd84a8be0da1523554f5dd5e)
+## [Arppa: Juhani](https://open.spotify.com/track/33sgloGFdSgqLRUbYjAIoS)
+![Arppa!](https://i.scdn.co/image/ab67616d00001e0250a13953384e3ca76feaeeec)
 
 ## [Scandinavian Music Group: Säälittävä syksy](https://open.spotify.com/track/3F6UbOfwckOIwwblt9l88g)
 ![Scandinavian Music Group!](https://i.scdn.co/image/ab67616d00001e0216fddc1efe70ab77e6b3a275)
-
-## [Sissal: Hallucination](https://open.spotify.com/track/3RYraCZjOLm1jXudyvtPVe)
-![Sissal!](https://i.scdn.co/image/ab67616d00001e022eaab8bb71b40e2a6a1193be)
 
 ## [Uusi Fantasia: Lattialla Taas](https://open.spotify.com/track/3kJAA1EH5rDa8jddr2aq3I)
 ![Uusi Fantasia!](https://i.scdn.co/image/ab67616d00001e02ac6183b33e254aaf4b8d88c4)
@@ -36,26 +27,35 @@ My monthly top tracks, updated on 7/18/2025, 1:58:44 AM
 ## [Sergio Mendes & Brasil '66: Righteous Life](https://open.spotify.com/track/4YsUyT4Y2Y5DBWbAbiFzac)
 ![Sergio Mendes & Brasil '66!](https://i.scdn.co/image/ab67616d00001e0264894b8ddbd5eabe926b8cd8)
 
-## [NEEA RIVER: Nightmares](https://open.spotify.com/track/4n9ahH0eliQyaEHiHs4It5)
-![NEEA RIVER!](https://i.scdn.co/image/ab67616d00001e027dcd4b7d99c8b6766507356e)
+## [Eva Dahlgren: Petroleum och tång](https://open.spotify.com/track/5CLRPPdB7Yi0ly5nM1Yvk9)
+![Eva Dahlgren!](https://i.scdn.co/image/ab67616d00001e023c9f6341cda3cd045a4d7258)
 
-## [Topi Sorsakoski & Agents: Olet Rakkain -And I Love Her- - Remaster 2007](https://open.spotify.com/track/6BOQ2e9OiXHml0b3DIfTWU)
-![Topi Sorsakoski & Agents!](https://i.scdn.co/image/ab67616d00001e02073628794967b1d240b9f94a)
+## [ABBA: One Man, One Woman](https://open.spotify.com/track/5fVCO1kPh1qE3s8aVqRv9t)
+![ABBA!](https://i.scdn.co/image/ab67616d00001e026f705bef76c1d861c4d51d8c)
 
-## [Sonja Selene: Mikä tarina](https://open.spotify.com/track/6Qcv22MEl9ZNB1Mo59krAJ)
-![Sonja Selene!](https://i.scdn.co/image/ab67616d00001e02f0b96ed158ae4f424d9f24b6)
-
-## [Solidaarisuus: Tytär (feat. ANI, Anna Puu, Pete Parkkonen, Ujuni Ahmed & Vilma Alina)](https://open.spotify.com/track/72h5i1Xo62IUXTdOxKP0mu)
-![Solidaarisuus!](https://i.scdn.co/image/ab67616d00001e02d3cd7dc7779e634368d4ac00)
-
-## [Käärijä: San Francisco Boy](https://open.spotify.com/track/76NMPdhz29sqm6pOnRkhd6)
-![Käärijä!](https://i.scdn.co/image/ab67616d00001e0250379423929ea6a4aa3987ee)
-
-## [Haloo Helsinki!: Gardenia](https://open.spotify.com/track/7Ih2bWlEQU3vg2s28qw607)
-![Haloo Helsinki!!](https://i.scdn.co/image/ab67616d00001e02383dfe059399daa640be2a01)
+## [Scandinavian Music Group: Naurava turskan kallo](https://open.spotify.com/track/5h7JOum2NlK1AKAx6daJob)
+![Scandinavian Music Group!](https://i.scdn.co/image/ab67616d00001e026016026c5faf37a49193e454)
 
 ## [Sir Elwoodin hiljaiset värit: Suomineito](https://open.spotify.com/track/7wNzxk4eoFVRrG3vuaQunv)
 ![Sir Elwoodin hiljaiset värit!](https://i.scdn.co/image/ab67616d00001e02df1ec7f0d5fcf736d3c8c85a)
 
-## [The Shapeshifters: Lola's Theme - Radio Edit](https://open.spotify.com/track/0J6lDdvg2ynXCmSH63jpsS)
-![The Shapeshifters!](https://i.scdn.co/image/ab67616d00001e029fbb1700681dd8f6b81c511f)
+## [Stevie Wonder: Superstition](https://open.spotify.com/track/4N0TP4Rmj6QQezWV88ARNJ)
+![Stevie Wonder!](https://i.scdn.co/image/ab67616d00001e02a14b08b9a6616e121df5e8b0)
+
+## [ABREU: Huuliharppu (Antonio) [Vain elämää kausi 12]](https://open.spotify.com/track/5HBo7k1XiCzJ7RY9LcZWkD)
+![ABREU!](https://i.scdn.co/image/ab67616d00001e0234017f2a4e73a9d6311f005b)
+
+## [This Is The Kit: Inside Outside](https://open.spotify.com/track/6m6uR64TEt5yO6cVO6oDkE)
+![This Is The Kit!](https://i.scdn.co/image/ab67616d00001e028bf956b4d22eedcb533eff6c)
+
+## [Nössö Nova: Tahiti](https://open.spotify.com/track/0FnRnWgqsd3BoDm40GE0It)
+![Nössö Nova!](https://i.scdn.co/image/ab67616d00001e02e0d770a13cfbf6838fb679b8)
+
+## [Saara Heikkilä: Roskiin, koskeen tai kuuhun](https://open.spotify.com/track/1QJn7ffOhIIM8sdpBAW5iz)
+![Saara Heikkilä!](https://i.scdn.co/image/ab67616d00001e0248f052f1b30bce280db8b2f4)
+
+## [Kauko Röyhkä & Riku Mattila: Hukkasin jotakin metsiin](https://open.spotify.com/track/3vom2pTNFrAkiGkEngq43s)
+![Kauko Röyhkä & Riku Mattila!](https://i.scdn.co/image/ab67616d00001e02b76b30e502725d039321fc4c)
+
+## [Rickie Lee Jones: Tried to Be a Man](https://open.spotify.com/track/02T5LnYryQdkCoc9Df38QJ)
+![Rickie Lee Jones!](https://i.scdn.co/image/ab67616d00001e02ff35f7f0089a398f765817a2)
