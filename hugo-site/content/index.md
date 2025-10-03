@@ -1,10 +1,22 @@
-My monthly top tracks, updated on 9/26/2025, 1:38:23 AM
+My monthly top tracks, updated on 10/3/2025, 1:36:09 AM
+
+## [Rebekka Holi: Haades](https://open.spotify.com/track/0EVASnDzRxiqWjUuWfoTL0)
+![Rebekka Holi!](https://i.scdn.co/image/ab67616d00001e02a046dc4319a699d24f8cebfa)
+
+## [Rebekka Holi: Saippuoita haistelemaan](https://open.spotify.com/track/45kYf98F1ZBD2KZq2mR1Ab)
+![Rebekka Holi!](https://i.scdn.co/image/ab67616d00001e02a046dc4319a699d24f8cebfa)
+
+## [Rebekka Holi: Päässäni on koira](https://open.spotify.com/track/4mtvaExZWW20JgU2QXJVpb)
+![Rebekka Holi!](https://i.scdn.co/image/ab67616d00001e02a046dc4319a699d24f8cebfa)
 
 ## [Rebekka Holi: Temppeliin tuu](https://open.spotify.com/track/65SYxrXZPlh9mm1GG4XcIe)
 ![Rebekka Holi!](https://i.scdn.co/image/ab67616d00001e02a046dc4319a699d24f8cebfa)
 
 ## [A.Reikko & Kaupungin ääni: Hulluus](https://open.spotify.com/track/0EPfckRr6VbUD4n2TccyT0)
 ![A.Reikko & Kaupungin ääni!](https://i.scdn.co/image/ab67616d00001e027179866ef549e0cd80549528)
+
+## [Apulanta: Armo](https://open.spotify.com/track/0Mzy06kcP4PlpGD3P74OWg)
+![Apulanta!](https://i.scdn.co/image/ab67616d00001e02b3df58009ab8675b071b6bda)
 
 ## [Arppa: Mountain Dew](https://open.spotify.com/track/0VaTfGyPB6kLA7nAJ2S21V)
 ![Arppa!](https://i.scdn.co/image/ab67616d00001e02a3e4114d16a5547a1ccf2dea)
@@ -47,15 +59,3 @@ My monthly top tracks, updated on 9/26/2025, 1:38:23 AM
 
 ## [Jenni Vartiainen: Monta elämää](https://open.spotify.com/track/6ECYLVj07QRPRnnRsh2baz)
 ![Jenni Vartiainen!](https://i.scdn.co/image/ab67616d00001e02e5e0f7752177945a78bc746e)
-
-## [Ludovico Einaudi: In Limine - Reworked by Leo Einaudi](https://open.spotify.com/track/6ZFLZRLwPz73HocY3uLfUD)
-![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e021e657e8cdccc7184479e1804)
-
-## [Anna von Hausswolff: The Whole Woman](https://open.spotify.com/track/6pmFHNJmQKQEUioMUJk1h5)
-![Anna von Hausswolff!](https://i.scdn.co/image/ab67616d00001e0217a8715f8896f867adbd8952)
-
-## [The Beatles: Now And Then](https://open.spotify.com/track/7eT64Q8X2RsgMm4lqtWK4n)
-![The Beatles!](https://i.scdn.co/image/ab67616d00001e022ad20d4688bdc999413ece39)
-
-## [Rebekka Holi: Tämä kirahvi](https://open.spotify.com/track/2INT4XbgbPh9W5GfTtPtPB)
-![Rebekka Holi!](https://i.scdn.co/image/ab67616d00001e02a046dc4319a699d24f8cebfa)
