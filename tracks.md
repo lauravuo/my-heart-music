@@ -1,4 +1,4 @@
-My monthly top tracks, updated on 10/10/2025, 1:39:06 AM
+My monthly top tracks, updated on 10/17/2025, 1:39:41 AM
 
 ## [Apulanta: Armo](https://open.spotify.com/track/0Mzy06kcP4PlpGD3P74OWg)
 ![Apulanta!](https://i.scdn.co/image/ab67616d00001e02b3df58009ab8675b071b6bda)
