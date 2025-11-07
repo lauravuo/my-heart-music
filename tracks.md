@@ -1,7 +1,4 @@
-My monthly top tracks, updated on 10/31/2025, 1:44:02 AM
-
-## [Apulanta: Armo](https://open.spotify.com/track/0Mzy06kcP4PlpGD3P74OWg)
-![Apulanta!](https://i.scdn.co/image/ab67616d00001e02b3df58009ab8675b071b6bda)
+My monthly top tracks, updated on 11/7/2025, 1:44:56 AM
 
 ## [Pomme: septembre](https://open.spotify.com/track/0NImn7FmOr11krdSJrHmyu)
 ![Pomme!](https://i.scdn.co/image/ab67616d00001e02a5f4622cdb50e670b99c252c)
@@ -11,6 +8,9 @@ My monthly top tracks, updated on 10/31/2025, 1:44:02 AM
 
 ## [Rebekka Holi: Minä ja Amalia](https://open.spotify.com/track/5trNmeh8FtmoPf5H0zFv87)
 ![Rebekka Holi!](https://i.scdn.co/image/ab67616d00001e02c0786eb462263360cd4dbeb5)
+
+## [Oskar Merikanto: Valse lente, Op. 33](https://open.spotify.com/track/7pJxHLzBHt9xxgWtYbhWU0)
+![Oskar Merikanto!](https://i.scdn.co/image/ab67616d00001e022183995f55afe309a4fa074e)
 
 ## [Ricky-Tick Big Band: Itsestäänselvää](https://open.spotify.com/track/7r2VVUEfLus5vl1u4bzWGc)
 ![Ricky-Tick Big Band!](https://i.scdn.co/image/ab67616d00001e027497a0d8335e52380f5e3961)
