@@ -1,4 +1,4 @@
-My monthly top tracks, updated on 11/7/2025, 1:44:56 AM
+My monthly top tracks, updated on 11/14/2025, 1:46:55 AM
 
 ## [Pomme: septembre](https://open.spotify.com/track/0NImn7FmOr11krdSJrHmyu)
 ![Pomme!](https://i.scdn.co/image/ab67616d00001e02a5f4622cdb50e670b99c252c)
