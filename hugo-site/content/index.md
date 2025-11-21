@@ -1,7 +1,13 @@
-My monthly top tracks, updated on 11/14/2025, 1:46:55 AM
+My monthly top tracks, updated on 11/21/2025, 1:45:20 AM
+
+## [Ricky-Tick Big Band: Itsestäänselvää](https://open.spotify.com/track/7r2VVUEfLus5vl1u4bzWGc)
+![Ricky-Tick Big Band!](https://i.scdn.co/image/ab67616d00001e027497a0d8335e52380f5e3961)
 
 ## [Pomme: septembre](https://open.spotify.com/track/0NImn7FmOr11krdSJrHmyu)
 ![Pomme!](https://i.scdn.co/image/ab67616d00001e02a5f4622cdb50e670b99c252c)
+
+## [Olivia Newton-John: Twist Of Fate - Remastered 2021](https://open.spotify.com/track/52dDSMbo5KgFBeT0DFK9PX)
+![Olivia Newton-John!](https://i.scdn.co/image/ab67616d00001e0213d8e8187b8d451cea7fc25a)
 
 ## [Eva Dahlgren: Petroleum och tång](https://open.spotify.com/track/5CLRPPdB7Yi0ly5nM1Yvk9)
 ![Eva Dahlgren!](https://i.scdn.co/image/ab67616d00001e023c9f6341cda3cd045a4d7258)
@@ -12,11 +18,17 @@ My monthly top tracks, updated on 11/14/2025, 1:46:55 AM
 ## [Oskar Merikanto: Valse lente, Op. 33](https://open.spotify.com/track/7pJxHLzBHt9xxgWtYbhWU0)
 ![Oskar Merikanto!](https://i.scdn.co/image/ab67616d00001e022183995f55afe309a4fa074e)
 
-## [Ricky-Tick Big Band: Itsestäänselvää](https://open.spotify.com/track/7r2VVUEfLus5vl1u4bzWGc)
-![Ricky-Tick Big Band!](https://i.scdn.co/image/ab67616d00001e027497a0d8335e52380f5e3961)
-
 ## [Oskar Merikanto: Valse Lente, Op. 33](https://open.spotify.com/track/21R5MiclsMIe9pWpTqABLL)
 ![Oskar Merikanto!](https://i.scdn.co/image/ab67616d00001e028b6703b032966e9905ba439e)
+
+## [Josén Pimeä Puoli: Sellainen](https://open.spotify.com/track/3kY54gqtW3TvVXFBaL2qut)
+![Josén Pimeä Puoli!](https://i.scdn.co/image/ab67616d00001e0218d5310b903154778c206557)
+
+## [Antti Autio: Viimeiseen virtaan](https://open.spotify.com/track/64OWl8gf1QdaaL3vfYA5zL)
+![Antti Autio!](https://i.scdn.co/image/ab67616d00001e0273e08c11e129be9fd404aefa)
+
+## [Saimaa: Pitkii päivät](https://open.spotify.com/track/1wEAuRfYFdMgXb42yMDEWm)
+![Saimaa!](https://i.scdn.co/image/ab67616d00001e027d3d3d2b696ebfb7f32be8c1)
 
 ## [Lyyti: Entiset ystävät](https://open.spotify.com/track/6HTjWMYKXQmZEBkCG4RRbE)
 ![Lyyti!](https://i.scdn.co/image/ab67616d00001e02285ec8e43905283ba6e8df1a)
@@ -24,8 +36,17 @@ My monthly top tracks, updated on 11/14/2025, 1:46:55 AM
 ## [M: On keskityttävä eläviin](https://open.spotify.com/track/6JkS45cvqr3IFXLezaU73z)
 ![M!](https://i.scdn.co/image/ab67616d00001e02cbfa77a61829412ce9950119)
 
+## [Mumford & Sons: Rubber Band Man (with Hozier)](https://open.spotify.com/track/6rrqv0WwGTTlavCNqVGd6A)
+![Mumford & Sons!](https://i.scdn.co/image/ab67616d00001e024f7daf3f3541b55e950f9911)
+
+## [Vaya Con Dios: Time Flies](https://open.spotify.com/track/03u2vjECPrP4PMbRi2HJG7)
+![Vaya Con Dios!](https://i.scdn.co/image/ab67616d00001e02401bed266627cf48a03493bc)
+
 ## [Rebekka Holi: Haades](https://open.spotify.com/track/0EVASnDzRxiqWjUuWfoTL0)
 ![Rebekka Holi!](https://i.scdn.co/image/ab67616d00001e02d4a117cc27bc1f805e0ebaf2)
+
+## [Arppa: Kavereita, Hilma](https://open.spotify.com/track/0N1WDRZ2r5oQhsxaEYXw4i)
+![Arppa!](https://i.scdn.co/image/ab67616d00001e024dfebe5c5db31ef2ef201ae0)
 
 ## [Rebekka Holi: Viisas nuori mies](https://open.spotify.com/track/0kJ4atz6wXsHlP36flp2Ym)
 ![Rebekka Holi!](https://i.scdn.co/image/ab67616d00001e02c0786eb462263360cd4dbeb5)
@@ -38,24 +59,3 @@ My monthly top tracks, updated on 11/14/2025, 1:46:55 AM
 
 ## [Neko Case: An Ice Age](https://open.spotify.com/track/1OV89Be8JpKXTQDnHjnzT4)
 ![Neko Case!](https://i.scdn.co/image/ab67616d00001e02bb6e44dd001645004d620a47)
-
-## [John Leyton: Lonely City - 2024 Remaster](https://open.spotify.com/track/1UZpWS3y16zFmT34z063W7)
-![John Leyton!](https://i.scdn.co/image/ab67616d00001e02a310afe4b26240e3aafa8ac0)
-
-## [Maritta Kuula: Rakkautta ilmassa](https://open.spotify.com/track/1fyuh4hfHTgHc4HyL42wjc)
-![Maritta Kuula!](https://i.scdn.co/image/ab67616d00001e02c79e4865d14ac1181af1accb)
-
-## [Tom Waits: Downtown Train - 2023 Remaster](https://open.spotify.com/track/1kQToxrczVpLtYdssdOsrr)
-![Tom Waits!](https://i.scdn.co/image/ab67616d00001e02d4d4cd6954bd161fd3a8b4a5)
-
-## [Jukka Nousiainen: Supermies Wonderboy](https://open.spotify.com/track/20J1D68tqXh0iqQH1A0bks)
-![Jukka Nousiainen!](https://i.scdn.co/image/ab67616d00001e020909dcb4a303922e696ecef3)
-
-## [Charlotte Gainsbourg: Blurry Moon](https://open.spotify.com/track/24liutnKoodF9LCDCJ3J0I)
-![Charlotte Gainsbourg!](https://i.scdn.co/image/ab67616d00001e02b5cad6e730b01d9a25342b79)
-
-## [Rebekka Holi: Tämä kirahvi](https://open.spotify.com/track/2INT4XbgbPh9W5GfTtPtPB)
-![Rebekka Holi!](https://i.scdn.co/image/ab67616d00001e02d4a117cc27bc1f805e0ebaf2)
-
-## [The Cure: Pictures Of You - Remastered](https://open.spotify.com/track/2o49Twc3qrNMOt8gq9W06L)
-![The Cure!](https://i.scdn.co/image/ab67616d00001e02ee8b603d6c666ba428daac30)
