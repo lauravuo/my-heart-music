@@ -1,61 +1,61 @@
-My monthly top tracks, updated on 11/21/2025, 1:45:20 AM
+My monthly top tracks, updated on 11/28/2025, 1:45:01 AM
 
-## [Ricky-Tick Big Band: Itsestäänselvää](https://open.spotify.com/track/7r2VVUEfLus5vl1u4bzWGc)
-![Ricky-Tick Big Band!](https://i.scdn.co/image/ab67616d00001e027497a0d8335e52380f5e3961)
+## [Annika Pudas: Painavaa (feat. Asla Jo)](https://open.spotify.com/track/7bIqBmBRMhr8y15Ybn3PU2)
+![Annika Pudas!](https://i.scdn.co/image/ab67616d00001e02a9f5f5fabf4f52d1a9c5cee2)
 
-## [Pomme: septembre](https://open.spotify.com/track/0NImn7FmOr11krdSJrHmyu)
-![Pomme!](https://i.scdn.co/image/ab67616d00001e02a5f4622cdb50e670b99c252c)
+## [Laila, Brita ja Vieno: Tonttuparaati - Heinzelmännchens Wachtparade](https://open.spotify.com/track/3NKjQJXgx8yJvIzCWDth7k)
+![Laila, Brita ja Vieno!](https://i.scdn.co/image/ab67616d00001e0261161d7416c5c909a1cb3e41)
 
-## [Olivia Newton-John: Twist Of Fate - Remastered 2021](https://open.spotify.com/track/52dDSMbo5KgFBeT0DFK9PX)
-![Olivia Newton-John!](https://i.scdn.co/image/ab67616d00001e0213d8e8187b8d451cea7fc25a)
+## [The Puppini Sisters: Santa Baby](https://open.spotify.com/track/5GXvCoH6B95hp9guTQYUmv)
+![The Puppini Sisters!](https://i.scdn.co/image/ab67616d00001e02f8553cf496dfa264859cf02d)
 
-## [Eva Dahlgren: Petroleum och tång](https://open.spotify.com/track/5CLRPPdB7Yi0ly5nM1Yvk9)
-![Eva Dahlgren!](https://i.scdn.co/image/ab67616d00001e023c9f6341cda3cd045a4d7258)
+## [Josén Pimeä Puoli: Tiskata saa](https://open.spotify.com/track/1aaqm4zTwUOrp2O6dFtuor)
+![Josén Pimeä Puoli!](https://i.scdn.co/image/ab67616d00001e022d31f847214e6108229a82d8)
 
-## [Rebekka Holi: Minä ja Amalia](https://open.spotify.com/track/5trNmeh8FtmoPf5H0zFv87)
-![Rebekka Holi!](https://i.scdn.co/image/ab67616d00001e02c0786eb462263360cd4dbeb5)
+## [Josén Pimeä Puoli: Ohikulkija](https://open.spotify.com/track/2hQ5dbQ4YRM7vLHVfg91Jx)
+![Josén Pimeä Puoli!](https://i.scdn.co/image/ab67616d00001e028ea76f3168248b878e6d112c)
 
-## [Oskar Merikanto: Valse lente, Op. 33](https://open.spotify.com/track/7pJxHLzBHt9xxgWtYbhWU0)
-![Oskar Merikanto!](https://i.scdn.co/image/ab67616d00001e022183995f55afe309a4fa074e)
+## [Arja Koriseva: Joulun rauhaa](https://open.spotify.com/track/0amTfsm4gQZ69XRM3yCnIb)
+![Arja Koriseva!](https://i.scdn.co/image/ab67616d00001e02a7592d239ffcb0ee6d69763d)
 
-## [Oskar Merikanto: Valse Lente, Op. 33](https://open.spotify.com/track/21R5MiclsMIe9pWpTqABLL)
-![Oskar Merikanto!](https://i.scdn.co/image/ab67616d00001e028b6703b032966e9905ba439e)
+## [The Moody Blues: When A Child Is Born](https://open.spotify.com/track/0avz65OqMfQMlW0uostJX0)
+![The Moody Blues!](https://i.scdn.co/image/ab67616d00001e0236e1643d5045aef3a2dfce8e)
 
-## [Josén Pimeä Puoli: Sellainen](https://open.spotify.com/track/3kY54gqtW3TvVXFBaL2qut)
-![Josén Pimeä Puoli!](https://i.scdn.co/image/ab67616d00001e0218d5310b903154778c206557)
+## [Juhani Kulhelm: Lumiukkojen polkka](https://open.spotify.com/track/1CujjRrOkVI9E5QeRm2Z33)
+![Juhani Kulhelm!](https://i.scdn.co/image/ab67616d00001e026170e0433524664f02ed3b3f)
 
-## [Antti Autio: Viimeiseen virtaan](https://open.spotify.com/track/64OWl8gf1QdaaL3vfYA5zL)
-![Antti Autio!](https://i.scdn.co/image/ab67616d00001e0273e08c11e129be9fd404aefa)
+## [Katri Helena: Muistojen kultaamat joulut](https://open.spotify.com/track/1E3CEv4cSTPmP6vP8Px8Hl)
+![Katri Helena!](https://i.scdn.co/image/ab67616d00001e0236330b463e2ab02d51ea8114)
 
-## [Saimaa: Pitkii päivät](https://open.spotify.com/track/1wEAuRfYFdMgXb42yMDEWm)
-![Saimaa!](https://i.scdn.co/image/ab67616d00001e027d3d3d2b696ebfb7f32be8c1)
+## [Scissor Sisters: Comfortably Numb](https://open.spotify.com/track/1Nfl4UGkzTHJMZ7itDY3IU)
+![Scissor Sisters!](https://i.scdn.co/image/ab67616d00001e02f2a3f7668babf3e257cfdf4d)
 
-## [Lyyti: Entiset ystävät](https://open.spotify.com/track/6HTjWMYKXQmZEBkCG4RRbE)
-![Lyyti!](https://i.scdn.co/image/ab67616d00001e02285ec8e43905283ba6e8df1a)
+## [Hector: Kotiin aattoillaksi - Anna laulu lahjaksi](https://open.spotify.com/track/1ujZbUd2e2jU6dV3FD8E44)
+![Hector!](https://i.scdn.co/image/ab67616d00001e02b9d8240176b6621f2595551f)
 
-## [M: On keskityttävä eläviin](https://open.spotify.com/track/6JkS45cvqr3IFXLezaU73z)
-![M!](https://i.scdn.co/image/ab67616d00001e02cbfa77a61829412ce9950119)
+## [Barbra Streisand: I'll Be Home for Christmas (2024 Remaster)](https://open.spotify.com/track/2F062hM3oh9f5ZEWtJIm6F)
+![Barbra Streisand!](https://i.scdn.co/image/ab67616d00001e02bbc6467dc5d7f3a1154d7ecd)
 
-## [Mumford & Sons: Rubber Band Man (with Hozier)](https://open.spotify.com/track/6rrqv0WwGTTlavCNqVGd6A)
-![Mumford & Sons!](https://i.scdn.co/image/ab67616d00001e024f7daf3f3541b55e950f9911)
+## [Hannnu: Jos olisin vanha](https://open.spotify.com/track/2HRU0trn9tnr143UdkDFV8)
+![Hannnu!](https://i.scdn.co/image/ab67616d00001e02317048171abd56c2a8cff2aa)
 
-## [Vaya Con Dios: Time Flies](https://open.spotify.com/track/03u2vjECPrP4PMbRi2HJG7)
-![Vaya Con Dios!](https://i.scdn.co/image/ab67616d00001e02401bed266627cf48a03493bc)
+## [Ressu Redford: Taas joulu saapuu](https://open.spotify.com/track/2T5zhJab9AqYgx9AoYzZbw)
+![Ressu Redford!](https://i.scdn.co/image/ab67616d00001e027444d51331f28d4823cdf327)
 
-## [Rebekka Holi: Haades](https://open.spotify.com/track/0EVASnDzRxiqWjUuWfoTL0)
-![Rebekka Holi!](https://i.scdn.co/image/ab67616d00001e02d4a117cc27bc1f805e0ebaf2)
+## [Sharon Corr: Christmas Night](https://open.spotify.com/track/2TrTsX7fyzCDFrul40SkWv)
+![Sharon Corr!](https://i.scdn.co/image/ab67616d00001e027072b01dbf07659f1907cc81)
 
-## [Arppa: Kavereita, Hilma](https://open.spotify.com/track/0N1WDRZ2r5oQhsxaEYXw4i)
-![Arppa!](https://i.scdn.co/image/ab67616d00001e024dfebe5c5db31ef2ef201ae0)
+## [Nössö Nova: Dynamo](https://open.spotify.com/track/2eIeTkAlua7fCfnpmFlyjG)
+![Nössö Nova!](https://i.scdn.co/image/ab67616d00001e025afd46af11098749cf2d4644)
 
-## [Rebekka Holi: Viisas nuori mies](https://open.spotify.com/track/0kJ4atz6wXsHlP36flp2Ym)
-![Rebekka Holi!](https://i.scdn.co/image/ab67616d00001e02c0786eb462263360cd4dbeb5)
+## [Michael Bublé: White Christmas (with Shania Twain)](https://open.spotify.com/track/2gbCG4Rt9984UZ7Tc0dIFd)
+![Michael Bublé!](https://i.scdn.co/image/ab67616d00001e0295517befb15ad5d63af701ab)
 
-## [Rebekka Holi: Huoleton](https://open.spotify.com/track/0reqpCIQoHVkzim0pFyLgK)
-![Rebekka Holi!](https://i.scdn.co/image/ab67616d00001e02c0786eb462263360cd4dbeb5)
+## [Anneli Saaristo: Varpunen jouluaamuna](https://open.spotify.com/track/35rKdBCH2u5YwMJtEnhq2C)
+![Anneli Saaristo!](https://i.scdn.co/image/ab67616d00001e022951c72c0a43e2c652a864fa)
 
-## [Dina Ögon: Dålig teve](https://open.spotify.com/track/1MRBWzBJkmj7hhsIoWP2kx)
-![Dina Ögon!](https://i.scdn.co/image/ab67616d00001e029d3ca69b9415b08234789007)
+## [Kalevauva.fi: Joulustressi](https://open.spotify.com/track/39NmyfNO9nSfZ6MjTluaXX)
+![Kalevauva.fi!](https://i.scdn.co/image/ab67616d00001e028f255e5704d6280313a034aa)
 
-## [Neko Case: An Ice Age](https://open.spotify.com/track/1OV89Be8JpKXTQDnHjnzT4)
-![Neko Case!](https://i.scdn.co/image/ab67616d00001e02bb6e44dd001645004d620a47)
+## [Ingrid Michaelson: Mele Kalikimaka](https://open.spotify.com/track/3BMUZO37rz608ThOg1wBzY)
+![Ingrid Michaelson!](https://i.scdn.co/image/ab67616d00001e0224478d8948f96ad343947037)
