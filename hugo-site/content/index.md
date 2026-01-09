@@ -1,4 +1,4 @@
-My monthly top tracks, updated on 1/2/2026, 1:56:07 AM
+My monthly top tracks, updated on 1/9/2026, 1:57:20 AM
 
 ## [Josén Pimeä Puoli: Sellainen](https://open.spotify.com/track/3kY54gqtW3TvVXFBaL2qut)
 ![Josén Pimeä Puoli!](https://i.scdn.co/image/ab67616d00001e0218d5310b903154778c206557)
@@ -9,14 +9,8 @@ My monthly top tracks, updated on 1/2/2026, 1:56:07 AM
 ## [Josén Pimeä Puoli: Tajunnanvirtaa](https://open.spotify.com/track/4ToTmCcQynxhHP5AQGaaJ6)
 ![Josén Pimeä Puoli!](https://i.scdn.co/image/ab67616d00001e022d31f847214e6108229a82d8)
 
-## [Esko Linnavallin orkesteri: Rekiretki - Sleighride](https://open.spotify.com/track/2scqaDjdxzvocdFmxg45K9)
-![Esko Linnavallin orkesteri!](https://i.scdn.co/image/ab67616d00001e0253db07faf67bbcc68d087fbb)
-
 ## [Josén Pimeä Puoli: Hyppää kyytiin](https://open.spotify.com/track/4cKjxSR3mqrKRwlEeKNxLb)
 ![Josén Pimeä Puoli!](https://i.scdn.co/image/ab67616d00001e028ea76f3168248b878e6d112c)
-
-## [Ida Paul & Kalle Lindroth: Sininen joulu](https://open.spotify.com/track/4x5M6fomSd7VREuWgnSnSS)
-![Ida Paul & Kalle Lindroth!](https://i.scdn.co/image/ab67616d00001e02df6b5d542365f92726fbfb89)
 
 ## [Antti Tuisku: Valovuodet (Varjosi jäi)](https://open.spotify.com/track/5ZXWNfeZZFCJBzvNduBQtE)
 ![Antti Tuisku!](https://i.scdn.co/image/ab67616d00001e026833f744ac9d41aa5762b646)
@@ -30,14 +24,8 @@ My monthly top tracks, updated on 1/2/2026, 1:56:07 AM
 ## [Eino Grön: Talven ihmemaa](https://open.spotify.com/track/08Wsp9Tb7aeOGptu4DDUi1)
 ![Eino Grön!](https://i.scdn.co/image/ab67616d00001e02a0fd987790d620900ea62e56)
 
-## [Frank Sinatra: I'll Be Home For Christmas (If Only In My Dreams) - Remastered 1999](https://open.spotify.com/track/0AY6UDs5EyeW45oQkEpsly)
-![Frank Sinatra!](https://i.scdn.co/image/ab67616d00001e0294fd2e614d0862bdd2592594)
-
 ## [The Brian Setzer Orchestra: So They Say It's Christmas](https://open.spotify.com/track/0IDVn8pA3j7IRTrwYyGwMw)
 ![The Brian Setzer Orchestra!](https://i.scdn.co/image/ab67616d00001e022abd680e7c8e9673a5d4fda3)
-
-## [Kyösti Mäkimattila: Joulumieltä kaikille](https://open.spotify.com/track/0LgvksFudjLYY6sXAQOjNA)
-![Kyösti Mäkimattila!](https://i.scdn.co/image/ab67616d00001e02bcdf75781b0b69cafb526cca)
 
 ## [Antti Railio: Joululaulu (The Christmas Song)](https://open.spotify.com/track/0T4MQW5oRCU3q1haM3fquP)
 ![Antti Railio!](https://i.scdn.co/image/ab67616d00001e027f9ce8aff639db11eb87c95f)
@@ -48,9 +36,6 @@ My monthly top tracks, updated on 1/2/2026, 1:56:07 AM
 ## [Sanna-Mari Titov: Uskon ihmeisiin](https://open.spotify.com/track/0yNRAWe8xW6XPTVeEwcfLF)
 ![Sanna-Mari Titov!](https://i.scdn.co/image/ab67616d00001e024348251588d2d322c019e5b6)
 
-## [Paul McCartney: Wonderful Christmastime - Edited Version / Remastered 2011](https://open.spotify.com/track/1SV1fxF65n9NhRHp3KlBuu)
-![Paul McCartney!](https://i.scdn.co/image/ab67616d00001e023cef016d13d82873d45af84a)
-
 ## [The Florin Street Band: My Favourite Time of Year (Christmas Video Edit)](https://open.spotify.com/track/1txkeOb9hZHINaFJqAhXS7)
 ![The Florin Street Band!](https://i.scdn.co/image/ab67616d00001e02d0e722f9e9d6acc093d6e350)
 
@@ -59,3 +44,18 @@ My monthly top tracks, updated on 1/2/2026, 1:56:07 AM
 
 ## [Il Divo: O Holy Night](https://open.spotify.com/track/2YSNog75DExxayabnbvVq6)
 ![Il Divo!](https://i.scdn.co/image/ab67616d00001e020c3cff322b4bbe21f2843eee)
+
+## [Mikko Harju: Ilouutinen](https://open.spotify.com/track/2cVNgk91y2YzHHwrEJ4rp3)
+![Mikko Harju!](https://i.scdn.co/image/ab67616d00001e025c9670719d91ee5a528b88be)
+
+## [Frigg: Tonttu](https://open.spotify.com/track/2qjcpPHzGvWz80XUKfcXv2)
+![Frigg!](https://i.scdn.co/image/ab67616d00001e02a3abc2c7bfa83183db061337)
+
+## [Saija Tuupanen: Pianhan meillä on joulu](https://open.spotify.com/track/3L4pJTwmL9VzZtu2E5qcBu)
+![Saija Tuupanen!](https://i.scdn.co/image/ab67616d00001e020dca0e2c6b222754de3e0662)
+
+## [Elvis Presley: Merry Christmas Baby](https://open.spotify.com/track/3xFFoCrsvMfCWcGqaiBhG2)
+![Elvis Presley!](https://i.scdn.co/image/ab67616d00001e02a8a7a4f68da3b3e87cea4c9a)
+
+## [Michael Bublé: Have Yourself a Merry Little Christmas](https://open.spotify.com/track/4QMEcIbG9GtSrkbvk7Pswd)
+![Michael Bublé!](https://i.scdn.co/image/ab67616d00001e022ead7786631d8dd3b59be4f0)
