@@ -1,4 +1,4 @@
-My monthly top tracks, updated on 1/16/2026, 1:57:51 AM
+My monthly top tracks, updated on 1/23/2026, 1:56:56 AM
 
 ## [Josén Pimeä Puoli: Sellainen](https://open.spotify.com/track/3kY54gqtW3TvVXFBaL2qut)
 ![Josén Pimeä Puoli!](https://i.scdn.co/image/ab67616d00001e0218d5310b903154778c206557)
