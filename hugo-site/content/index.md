@@ -1,61 +1,61 @@
-My monthly top tracks, updated on 2/6/2026, 2:24:26 AM
+My monthly top tracks, updated on 2/13/2026, 2:33:42 AM
 
 ## [Litku Klemetti: Asperger](https://open.spotify.com/track/2Itc1nJvdC4uqOFlVIyY4k)
 ![Litku Klemetti!](https://i.scdn.co/image/ab67616d00001e0294fb0df94fa29e3f1cd5ed18)
 
-## [Scandinavian Music Group: Vihreänä puuna kasvava rakkaus](https://open.spotify.com/track/1P5pn127yNeTM2nTzYRK3e)
-![Scandinavian Music Group!](https://i.scdn.co/image/ab67616d00001e02b9c4646118787e994421831c)
-
 ## [Ismo Alanko: Hylkään](https://open.spotify.com/track/5X0CR9QTLrd6n57eM8t741)
 ![Ismo Alanko!](https://i.scdn.co/image/ab67616d00001e023e011a0087c45a2fdb85c7fe)
-
-## [Scandinavian Music Group: Me muistamme mitä rakastamme](https://open.spotify.com/track/49wl6Z1Loo1wQMdEuSAeIE)
-![Scandinavian Music Group!](https://i.scdn.co/image/ab67616d00001e02b9c4646118787e994421831c)
-
-## [Eppu Normaali: Linnunradan Laidalla](https://open.spotify.com/track/1VIKqK3U9KPMYSWaK9TV64)
-![Eppu Normaali!](https://i.scdn.co/image/ab67616d00001e0256f6bdd54787cc46beeb2226)
-
-## [Eppu Normaali: Voi Kuinka Me Sinua Kaivataan](https://open.spotify.com/track/2SBf6c99o8IHWLbUryrmvw)
-![Eppu Normaali!](https://i.scdn.co/image/ab67616d00001e02e6393c10052234e07ff1709f)
-
-## [Eppu Normaali: Joka Päivä Ja Joka Ikinen Yö](https://open.spotify.com/track/4neLYZzrh6Zrblc4VWaZFF)
-![Eppu Normaali!](https://i.scdn.co/image/ab67616d00001e0207a7d40bd8d1c5821929bc9c)
 
 ## [i know her: The Last Ride](https://open.spotify.com/track/55yuZ82Oq68OBL7nMHBwEo)
 ![i know her!](https://i.scdn.co/image/ab67616d00001e021a51ad73ca391905f25e57f5)
 
+## [Mira Luoti: Cokis ja Mentos](https://open.spotify.com/track/7epSxuVlx3PKqCqQcr42i1)
+![Mira Luoti!](https://i.scdn.co/image/ab67616d00001e022600aa9a2996356c469e0fb4)
+
 ## [51koodia: Jumalten suuri suunnitelma](https://open.spotify.com/track/5y1ztx7sDIcIGeSKu4ciuv)
 ![51koodia!](https://i.scdn.co/image/ab67616d00001e02d8ef418d59daf9ff23665257)
 
-## [Scandinavian Music Group: Syntymäpäivänä](https://open.spotify.com/track/74x0k0CmuuGAKT9uapf6zH)
-![Scandinavian Music Group!](https://i.scdn.co/image/ab67616d00001e02b9c4646118787e994421831c)
-
-## [Mira Luoti: Cokis ja Mentos](https://open.spotify.com/track/7epSxuVlx3PKqCqQcr42i1)
-![Mira Luoti!](https://i.scdn.co/image/ab67616d00001e02d2c625ac2ce78083b54795c7)
-
-## [Eppu Normaali: Kun Jatsia Kuunneltiin](https://open.spotify.com/track/7mXl8rToCvtVaRcbsZ7KrN)
-![Eppu Normaali!](https://i.scdn.co/image/ab67616d00001e0207a7d40bd8d1c5821929bc9c)
-
-## [Seal: Crazy - 2022 Remaster](https://open.spotify.com/track/2KP6bTmxOSEVMXAnbapkpa)
-![Seal!](https://i.scdn.co/image/ab67616d00001e02bf1193bd570121f052615217)
-
 ## [Happoradio: Ainoa järki](https://open.spotify.com/track/2XF9JpN2brfbj4DV5pKiwQ)
-![Happoradio!](https://i.scdn.co/image/ab67616d00001e0223dc891aaa3bb13afb161653)
-
-## [Sting: All This Time](https://open.spotify.com/track/2cu8WtQZdxGe3lbetlzeNe)
-![Sting!](https://i.scdn.co/image/ab67616d00001e0274f1ac5be2da3b5c2d5a2ddc)
-
-## [Scandinavian Music Group: Ajatuksissani](https://open.spotify.com/track/2nzPSYaUMNtG2eGv2FwQfG)
-![Scandinavian Music Group!](https://i.scdn.co/image/ab67616d00001e02b9c4646118787e994421831c)
-
-## [U2: Even Better Than The Real Thing](https://open.spotify.com/track/4bK2vKMdkS0rNhbzRqAZe0)
-![U2!](https://i.scdn.co/image/ab67616d00001e0237cd18af5725b9cad0a5ab53)
-
-## [Prince: Cream - Without Rap Monologue](https://open.spotify.com/track/5MWKU5MnIuv5uQez4n0byz)
-![Prince!](https://i.scdn.co/image/ab67616d00001e0299e49fe1e935d3d724627211)
+![Happoradio!](https://i.scdn.co/image/ab67616d00001e02c9dab6d913161fd78133e450)
 
 ## [Vilma Jää: Mieli musta](https://open.spotify.com/track/5UR6P38F3YnC2UBxwLbYk4)
 ![Vilma Jää!](https://i.scdn.co/image/ab67616d00001e024ea1acfce0c7047cb8f51f36)
 
-## [Metallica: Sad But True - Remastered 2021](https://open.spotify.com/track/5ltXoDLlI0rFZAmOXbAp5T)
-![Metallica!](https://i.scdn.co/image/ab67616d00001e02c1a13209dfe146aef3296e34)
+## [Frédéric Chopin: 24 Préludes, Op. 28: No. 4, Largo](https://open.spotify.com/track/2Dd2zfTpZ4zgqWeCTTi2by)
+![Frédéric Chopin!](https://i.scdn.co/image/ab67616d00001e02fb34b31e976077c252b79cea)
+
+## [Compay Segundo: Guajira guantanamera](https://open.spotify.com/track/2Vy9F0mp0gcj9NxzfVDcQm)
+![Compay Segundo!](https://i.scdn.co/image/ab67616d00001e028e14a19b0dd8f2815255af86)
+
+## [J. Karjalainen: Kadun toisella puolella](https://open.spotify.com/track/6as8XNpbQPV4RJYbpmrkSE)
+![J. Karjalainen!](https://i.scdn.co/image/ab67616d00001e02944f40b195f2f9c95e3a7f82)
+
+## [Lordi: Hard Rock Hallelujah](https://open.spotify.com/track/7sZTvm0Sx8umbyQViTE2Qc)
+![Lordi!](https://i.scdn.co/image/ab67616d00001e0281823d9a13025f8852fb8e56)
+
+## [Rebekka Holi: Haades](https://open.spotify.com/track/0EVASnDzRxiqWjUuWfoTL0)
+![Rebekka Holi!](https://i.scdn.co/image/ab67616d00001e02d4a117cc27bc1f805e0ebaf2)
+
+## [Rhys Frank: Catch & Release](https://open.spotify.com/track/0LgiKGRnK1IMk1bAOgrBcY)
+![Rhys Frank!](https://i.scdn.co/image/ab67616d00001e023da1c8ee00b6066d6c946b4d)
+
+## [Bruno Mars: I Just Might](https://open.spotify.com/track/12bYYQaLqHliSXvRIYlq8G)
+![Bruno Mars!](https://i.scdn.co/image/ab67616d00001e02e7623a0a60f330ee2b24d498)
+
+## [Mikko Perkoila: Rakkaani Uskonut Ei](https://open.spotify.com/track/1J4vFM6NPrMLAphkNWPjAr)
+![Mikko Perkoila!](https://i.scdn.co/image/ab67616d00001e0222fe7a6c9d23506da439a3ea)
+
+## [Pelkkää Hyvää Experience: Kerron Kaiken](https://open.spotify.com/track/25hzkswf9pRTOwvm896242)
+![Pelkkää Hyvää Experience!](https://i.scdn.co/image/ab67616d00001e02f1c2d4588f5019754cdda87c)
+
+## [Jannika B: Jossain sä oot](https://open.spotify.com/track/2ZvQ60llWT1r7KbTAsozYW)
+![Jannika B!](https://i.scdn.co/image/ab67616d00001e02a76619cfefb00ba579325cc5)
+
+## [ABBA: Money, Money, Money](https://open.spotify.com/track/3lKN03PDeBnXZS7sDukRBt)
+![ABBA!](https://i.scdn.co/image/ab67616d00001e0270f7a1b35d5165c85b95a0e0)
+
+## [FLO: Recently Deleted](https://open.spotify.com/track/49uWjZ0INI41gLJVi8DxIf)
+![FLO!](https://i.scdn.co/image/ab67616d00001e02e75c9471fd68f29812e89f68)
+
+## [Mahmood: Soldi](https://open.spotify.com/track/4szQkW1CDHqbRZGltXJdd3)
+![Mahmood!](https://i.scdn.co/image/ab67616d00001e02c60b6ec17dcd820b3b6cd380)
