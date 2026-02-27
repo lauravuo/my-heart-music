@@ -1,4 +1,4 @@
-My monthly top tracks, updated on 2/20/2026, 2:24:47 AM
+My monthly top tracks, updated on 2/27/2026, 2:23:03 AM
 
 ## [Saimaa: Hipit rautaa](https://open.spotify.com/track/1QWZ3fb3t7bsHYJxlY8XPr)
 ![Saimaa!](https://i.scdn.co/image/ab67616d00001e02394a629b844699e7b9bcc65b)
@@ -9,15 +9,6 @@ My monthly top tracks, updated on 2/20/2026, 2:24:47 AM
 ## [i know her: The Last Ride](https://open.spotify.com/track/55yuZ82Oq68OBL7nMHBwEo)
 ![i know her!](https://i.scdn.co/image/ab67616d00001e021a51ad73ca391905f25e57f5)
 
-## [Litku Klemetti: Asperger](https://open.spotify.com/track/2Itc1nJvdC4uqOFlVIyY4k)
-![Litku Klemetti!](https://i.scdn.co/image/ab67616d00001e0294fb0df94fa29e3f1cd5ed18)
-
-## [Mira Luoti: Cokis ja Mentos](https://open.spotify.com/track/7epSxuVlx3PKqCqQcr42i1)
-![Mira Luoti!](https://i.scdn.co/image/ab67616d00001e022600aa9a2996356c469e0fb4)
-
-## [Ismo Alanko: Hylkään](https://open.spotify.com/track/6v2DG6ZkAb6RxPr5juh21f)
-![Ismo Alanko!](https://i.scdn.co/image/ab67616d00001e02d0ad3c0169ea4fb8818d483a)
-
 ## [Kaija Koo: Surulapsi](https://open.spotify.com/track/0nYt9DbjrhbFHAmtgOoF9X)
 ![Kaija Koo!](https://i.scdn.co/image/ab67616d00001e02d9574b788034fd5f2ddc5c94)
 
@@ -26,15 +17,6 @@ My monthly top tracks, updated on 2/20/2026, 2:24:47 AM
 
 ## [Mahmood: Soldi](https://open.spotify.com/track/4szQkW1CDHqbRZGltXJdd3)
 ![Mahmood!](https://i.scdn.co/image/ab67616d00001e02c60b6ec17dcd820b3b6cd380)
-
-## [51koodia: Jumalten suuri suunnitelma](https://open.spotify.com/track/5y1ztx7sDIcIGeSKu4ciuv)
-![51koodia!](https://i.scdn.co/image/ab67616d00001e02d8ef418d59daf9ff23665257)
-
-## [Happoradio: Ainoa järki](https://open.spotify.com/track/2XF9JpN2brfbj4DV5pKiwQ)
-![Happoradio!](https://i.scdn.co/image/ab67616d00001e02c9dab6d913161fd78133e450)
-
-## [Vilma Jää: Mieli musta](https://open.spotify.com/track/5UR6P38F3YnC2UBxwLbYk4)
-![Vilma Jää!](https://i.scdn.co/image/ab67616d00001e024ea1acfce0c7047cb8f51f36)
 
 ## [Scandinavian Music Group: Vihreänä puuna kasvava rakkaus](https://open.spotify.com/track/1P5pn127yNeTM2nTzYRK3e)
 ![Scandinavian Music Group!](https://i.scdn.co/image/ab67616d00001e02b9c4646118787e994421831c)
@@ -46,7 +28,7 @@ My monthly top tracks, updated on 2/20/2026, 2:24:47 AM
 ![Compay Segundo!](https://i.scdn.co/image/ab67616d00001e028e14a19b0dd8f2815255af86)
 
 ## [Ludovico Einaudi: Nuvole Bianche](https://open.spotify.com/track/3weNRklVDqb4Rr5MhKBR3D)
-![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e02c0c021c0ac135d923b3a0ddc)
+![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e024ea8c5801bfdf5ac90719400)
 
 ## [Litku Klemetti: Aivomätä](https://open.spotify.com/track/4Gv5cz1ydmnGDgZNkixKWk)
 ![Litku Klemetti!](https://i.scdn.co/image/ab67616d00001e02404533698f0c59f123bcafd1)
@@ -54,8 +36,26 @@ My monthly top tracks, updated on 2/20/2026, 2:24:47 AM
 ## [Anna Puu: Rakkaus tappaa](https://open.spotify.com/track/5iTVwtzTIXhJE6sYtakBGZ)
 ![Anna Puu!](https://i.scdn.co/image/ab67616d00001e026a3ffcd50f037484fd9398c6)
 
-## [J. Karjalainen: Kadun toisella puolella](https://open.spotify.com/track/6as8XNpbQPV4RJYbpmrkSE)
-![J. Karjalainen!](https://i.scdn.co/image/ab67616d00001e02251f6ef3bcee063f0d88826e)
+## [Mira Luoti: Cokis ja Mentos](https://open.spotify.com/track/7epSxuVlx3PKqCqQcr42i1)
+![Mira Luoti!](https://i.scdn.co/image/ab67616d00001e022600aa9a2996356c469e0fb4)
 
 ## [Lordi: Hard Rock Hallelujah](https://open.spotify.com/track/7sZTvm0Sx8umbyQViTE2Qc)
 ![Lordi!](https://i.scdn.co/image/ab67616d00001e0281823d9a13025f8852fb8e56)
+
+## [ABBA: Eagle - Short Version](https://open.spotify.com/track/03n63nnvPKeMEKmjWJluai)
+![ABBA!](https://i.scdn.co/image/ab67616d00001e02f57547d93d7940c9be2648f8)
+
+## [Ani Lorak: Shady Lady](https://open.spotify.com/track/0DHet9TdSsdouIbOjvLf3m)
+![Ani Lorak!](https://i.scdn.co/image/ab67616d00001e02d62b39f8a860ed9c86c13eaf)
+
+## [Chanel: SloMo](https://open.spotify.com/track/0T71AvVXY4RB65tvdIyzdO)
+![Chanel!](https://i.scdn.co/image/ab67616d00001e020e730d9604a6f5c65d7e9c94)
+
+## [The Weeknd: Blinding Lights](https://open.spotify.com/track/0VjIjW4GlUZAMYd2vXMi3b)
+![The Weeknd!](https://i.scdn.co/image/ab67616d00001e028863bc11d2aa12b54f5aeb36)
+
+## [Adele: River Lea](https://open.spotify.com/track/0bqC0AqaBZKBZsjhI3y2OW)
+![Adele!](https://i.scdn.co/image/ab67616d00001e027b9888dc365b8f957c63df14)
+
+## [ABREU: Sytyn](https://open.spotify.com/track/0bup6XzvVJUL8wKUI0P1AP)
+![ABREU!](https://i.scdn.co/image/ab67616d00001e023a24aabe6c5e241d13c97f8f)
