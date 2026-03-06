@@ -1,4 +1,4 @@
-My monthly top tracks, updated on 2/27/2026, 2:23:03 AM
+My monthly top tracks, updated on 3/6/2026, 2:22:58 AM
 
 ## [Saimaa: Hipit rautaa](https://open.spotify.com/track/1QWZ3fb3t7bsHYJxlY8XPr)
 ![Saimaa!](https://i.scdn.co/image/ab67616d00001e02394a629b844699e7b9bcc65b)
@@ -12,50 +12,50 @@ My monthly top tracks, updated on 2/27/2026, 2:23:03 AM
 ## [Kaija Koo: Surulapsi](https://open.spotify.com/track/0nYt9DbjrhbFHAmtgOoF9X)
 ![Kaija Koo!](https://i.scdn.co/image/ab67616d00001e02d9574b788034fd5f2ddc5c94)
 
+## [JANNA: Sateet](https://open.spotify.com/track/24Zufs1NBaQiDjuYv6VgDy)
+![JANNA!](https://i.scdn.co/image/ab67616d00001e02f3c7cf2e0821d5d26592aa9f)
+
+## [Liisa Akimof: Pläntti](https://open.spotify.com/track/4MCczlsu4eWtvYGJBa58YD)
+![Liisa Akimof!](https://i.scdn.co/image/ab67616d00001e02e04a4a2fa1dcb8b6ba412cd9)
+
 ## [Maija Vilkkumaa: Teini](https://open.spotify.com/track/4Mqd4bOLoy6xmfojDuCd5n)
 ![Maija Vilkkumaa!](https://i.scdn.co/image/ab67616d00001e028a1a59ab62ac17298f88d263)
 
 ## [Mahmood: Soldi](https://open.spotify.com/track/4szQkW1CDHqbRZGltXJdd3)
 ![Mahmood!](https://i.scdn.co/image/ab67616d00001e02c60b6ec17dcd820b3b6cd380)
 
-## [Scandinavian Music Group: Vihreänä puuna kasvava rakkaus](https://open.spotify.com/track/1P5pn127yNeTM2nTzYRK3e)
-![Scandinavian Music Group!](https://i.scdn.co/image/ab67616d00001e02b9c4646118787e994421831c)
-
-## [Frédéric Chopin: 24 Préludes, Op. 28: No. 4, Largo](https://open.spotify.com/track/2Dd2zfTpZ4zgqWeCTTi2by)
-![Frédéric Chopin!](https://i.scdn.co/image/ab67616d00001e02fb34b31e976077c252b79cea)
-
-## [Compay Segundo: Guajira guantanamera](https://open.spotify.com/track/2Vy9F0mp0gcj9NxzfVDcQm)
-![Compay Segundo!](https://i.scdn.co/image/ab67616d00001e028e14a19b0dd8f2815255af86)
-
-## [Ludovico Einaudi: Nuvole Bianche](https://open.spotify.com/track/3weNRklVDqb4Rr5MhKBR3D)
-![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e024ea8c5801bfdf5ac90719400)
-
-## [Litku Klemetti: Aivomätä](https://open.spotify.com/track/4Gv5cz1ydmnGDgZNkixKWk)
-![Litku Klemetti!](https://i.scdn.co/image/ab67616d00001e02404533698f0c59f123bcafd1)
+## [Chisu: Jos menet pois (Vain elämää kausi 5)](https://open.spotify.com/track/5Njc27HQZ6vw9xBaGvmeh3)
+![Chisu!](https://i.scdn.co/image/ab67616d00001e02bb3e4cdf55ce2de7614e049a)
 
 ## [Anna Puu: Rakkaus tappaa](https://open.spotify.com/track/5iTVwtzTIXhJE6sYtakBGZ)
 ![Anna Puu!](https://i.scdn.co/image/ab67616d00001e026a3ffcd50f037484fd9398c6)
 
-## [Mira Luoti: Cokis ja Mentos](https://open.spotify.com/track/7epSxuVlx3PKqCqQcr42i1)
-![Mira Luoti!](https://i.scdn.co/image/ab67616d00001e022600aa9a2996356c469e0fb4)
+## [J. Karjalainen Yhtyeineen: Mä käännyn hiljaa pois](https://open.spotify.com/track/7a7m09GsZAeRuZhBjXNihs)
+![J. Karjalainen Yhtyeineen!](https://i.scdn.co/image/ab67616d00001e02381c9492a053325a48804294)
+
+## [Laura Närhi: Mä elän](https://open.spotify.com/track/7gh90z4JWdIlwN2pK6CQKx)
+![Laura Närhi!](https://i.scdn.co/image/ab67616d00001e027076acf3affe8d9b1e2e3a11)
+
+## [Ludovico Einaudi: Nuvole Bianche](https://open.spotify.com/track/3weNRklVDqb4Rr5MhKBR3D)
+![Ludovico Einaudi!](https://i.scdn.co/image/ab67616d00001e024ea8c5801bfdf5ac90719400)
+
+## [Josén Pimeä Puoli: Mustana](https://open.spotify.com/track/79xhGTU3Bv3y9X14SIYCFB)
+![Josén Pimeä Puoli!](https://i.scdn.co/image/ab67616d00001e0253799a39b5e6d6b0bf802d01)
 
 ## [Lordi: Hard Rock Hallelujah](https://open.spotify.com/track/7sZTvm0Sx8umbyQViTE2Qc)
 ![Lordi!](https://i.scdn.co/image/ab67616d00001e0281823d9a13025f8852fb8e56)
 
+## [Antti Autio: Vittu minä kuolen tänne](https://open.spotify.com/track/00LFydK4Cq0FB6eUU38Szv)
+![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02fda8fa8420d519b31d320306)
+
 ## [ABBA: Eagle - Short Version](https://open.spotify.com/track/03n63nnvPKeMEKmjWJluai)
 ![ABBA!](https://i.scdn.co/image/ab67616d00001e02f57547d93d7940c9be2648f8)
+
+## [Arppa: Paha meno Pengerkadulla](https://open.spotify.com/track/0590wro60UzD1iwmPArHTC)
+![Arppa!](https://i.scdn.co/image/ab67616d00001e029baa874763fd8c5d381b15d6)
 
 ## [Ani Lorak: Shady Lady](https://open.spotify.com/track/0DHet9TdSsdouIbOjvLf3m)
 ![Ani Lorak!](https://i.scdn.co/image/ab67616d00001e02d62b39f8a860ed9c86c13eaf)
 
 ## [Chanel: SloMo](https://open.spotify.com/track/0T71AvVXY4RB65tvdIyzdO)
 ![Chanel!](https://i.scdn.co/image/ab67616d00001e020e730d9604a6f5c65d7e9c94)
-
-## [The Weeknd: Blinding Lights](https://open.spotify.com/track/0VjIjW4GlUZAMYd2vXMi3b)
-![The Weeknd!](https://i.scdn.co/image/ab67616d00001e028863bc11d2aa12b54f5aeb36)
-
-## [Adele: River Lea](https://open.spotify.com/track/0bqC0AqaBZKBZsjhI3y2OW)
-![Adele!](https://i.scdn.co/image/ab67616d00001e027b9888dc365b8f957c63df14)
-
-## [ABREU: Sytyn](https://open.spotify.com/track/0bup6XzvVJUL8wKUI0P1AP)
-![ABREU!](https://i.scdn.co/image/ab67616d00001e023a24aabe6c5e241d13c97f8f)
