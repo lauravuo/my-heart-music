@@ -1,7 +1,4 @@
-My monthly top tracks, updated on 3/27/2026, 2:39:25 AM
-
-## [Antti Autio: Vittu minä kuolen tänne](https://open.spotify.com/track/00LFydK4Cq0FB6eUU38Szv)
-![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02fda8fa8420d519b31d320306)
+My monthly top tracks, updated on 4/3/2026, 2:37:27 AM
 
 ## [Linda Lampenius: Liekinheitin](https://open.spotify.com/track/0k2NxIVax5tnGSCeruFyEL)
 ![Linda Lampenius!](https://i.scdn.co/image/ab67616d00001e028e2b35861fb6f110421cc4d4)
@@ -12,26 +9,17 @@ My monthly top tracks, updated on 3/27/2026, 2:39:25 AM
 ## [Lauri Mikkola: Puhutaan et puhutaan](https://open.spotify.com/track/6jd98aPGvdjHPqZrsPTlbV)
 ![Lauri Mikkola!](https://i.scdn.co/image/ab67616d00001e0249fa2ecd91b2931fb9eb015f)
 
+## [Antti Autio: Vittu minä kuolen tänne](https://open.spotify.com/track/00LFydK4Cq0FB6eUU38Szv)
+![Antti Autio!](https://i.scdn.co/image/ab67616d00001e02fda8fa8420d519b31d320306)
+
 ## [Lumottu Apina: Pegasos](https://open.spotify.com/track/0it3WncNMMMRbm1yIEyXdQ)
 ![Lumottu Apina!](https://i.scdn.co/image/ab67616d00001e020e4728f505466dbec03d4fa2)
-
-## [ABREU: Paholainen (querido) [feat. Averagekidluke]](https://open.spotify.com/track/2NkD9LpDarxpqt8iq0CnPF)
-![ABREU!](https://i.scdn.co/image/ab67616d00001e028fb297ce4a04412b80f03cc0)
 
 ## [Maustetytöt: Hapentuhlaaja](https://open.spotify.com/track/2wa5uFj4KGERItjztC6QrQ)
 ![Maustetytöt!](https://i.scdn.co/image/ab67616d00001e027a563f947f9c900f18b2eb34)
 
 ## [Liisa Akimof: Pläntti](https://open.spotify.com/track/4MCczlsu4eWtvYGJBa58YD)
 ![Liisa Akimof!](https://i.scdn.co/image/ab67616d00001e02e04a4a2fa1dcb8b6ba412cd9)
-
-## [Anna Puu: Rakkaus tappaa](https://open.spotify.com/track/5iTVwtzTIXhJE6sYtakBGZ)
-![Anna Puu!](https://i.scdn.co/image/ab67616d00001e026a3ffcd50f037484fd9398c6)
-
-## [Josén Pimeä Puoli: Mustana](https://open.spotify.com/track/79xhGTU3Bv3y9X14SIYCFB)
-![Josén Pimeä Puoli!](https://i.scdn.co/image/ab67616d00001e0253799a39b5e6d6b0bf802d01)
-
-## [Laura Närhi: Mä elän](https://open.spotify.com/track/7gh90z4JWdIlwN2pK6CQKx)
-![Laura Närhi!](https://i.scdn.co/image/ab67616d00001e027076acf3affe8d9b1e2e3a11)
 
 ## [EEMELI: Takas Pohjanmaalle](https://open.spotify.com/track/6YqiYtLlhbbXSJCiWbXYZT)
 ![EEMELI!](https://i.scdn.co/image/ab67616d00001e02e5eadb7b083080a4e3f229d1)
@@ -59,3 +47,15 @@ My monthly top tracks, updated on 3/27/2026, 2:39:25 AM
 
 ## [Saimaa: Kivi jota vierittää I](https://open.spotify.com/track/6x9jmnCxmujiJrquwJB9QI)
 ![Saimaa!](https://i.scdn.co/image/ab67616d00001e027d3d3d2b696ebfb7f32be8c1)
+
+## [Killer: Come Back](https://open.spotify.com/track/0ELSvcZ3EKntkBHqARS0Vw)
+![Killer!](https://i.scdn.co/image/ab67616d00001e020b10b50403c7a2dae1f3c0c1)
+
+## [Behm: Lupaan (feat. Rajaton)](https://open.spotify.com/track/0dnzdfbHsC4ITKhcp9FM0x)
+![Behm!](https://i.scdn.co/image/ab67616d00001e0232ec0ef07e57d19a25ecbc93)
+
+## [Antti Autio: Liikaa](https://open.spotify.com/track/0e4HnXWMW7OY0dzSvp8H8G)
+![Antti Autio!](https://i.scdn.co/image/ab67616d00001e0282ec8d95ab6b9671204f6bc4)
+
+## [Joakim Berg: Över](https://open.spotify.com/track/142CLjGxBpBtQxj9gPNJOK)
+![Joakim Berg!](https://i.scdn.co/image/ab67616d00001e02000970c3322c97212d420561)
