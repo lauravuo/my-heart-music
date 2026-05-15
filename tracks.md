@@ -1,4 +1,4 @@
-My monthly top tracks, updated on 5/8/2026, 3:24:14 AM
+My monthly top tracks, updated on 5/15/2026, 3:42:55 AM
 
 ## [Katri Helena: Palman mainingit](https://open.spotify.com/track/1tE8gMmdfJdBX3WXIdxCL2)
 ![Katri Helena!](https://i.scdn.co/image/ab67616d00001e0207bd0193c2c7619afe790225)
@@ -15,12 +15,6 @@ My monthly top tracks, updated on 5/8/2026, 3:24:14 AM
 ## [Rebekka Holi: Mitä sinulle kuuluu?](https://open.spotify.com/track/717qRbMMc57pJww4D03Nbb)
 ![Rebekka Holi!](https://i.scdn.co/image/ab67616d00001e02c0786eb462263360cd4dbeb5)
 
-## [Maija Vilkkumaa: Rikkinäinen sähikäinen](https://open.spotify.com/track/16QrxvQT27TMqzdrSCBv34)
-![Maija Vilkkumaa!](https://i.scdn.co/image/ab67616d00001e024108fad328d2d5ab5e76a043)
-
-## [Maija Vilkkumaa: Prinsessa jää](https://open.spotify.com/track/2maeabQctXOoBR1CbGLrnD)
-![Maija Vilkkumaa!](https://i.scdn.co/image/ab67616d00001e024108fad328d2d5ab5e76a043)
-
 ## [Rebekka Holi: Vyöry](https://open.spotify.com/track/49WeYM38kRQfRxHYHzrGnw)
 ![Rebekka Holi!](https://i.scdn.co/image/ab67616d00001e02d4a117cc27bc1f805e0ebaf2)
 
@@ -36,11 +30,8 @@ My monthly top tracks, updated on 5/8/2026, 3:24:14 AM
 ## [J. Karjalainen Yhtyeineen: Telepatiaa](https://open.spotify.com/track/0zZ6NYUgYCmFIh2Y8VLVqG)
 ![J. Karjalainen Yhtyeineen!](https://i.scdn.co/image/ab67616d00001e02337afa950cfa9ad741e9098a)
 
-## [Maija Vilkkumaa: Kristallitiara](https://open.spotify.com/track/1jeHGlK7LR3joaOT1mMh3k)
-![Maija Vilkkumaa!](https://i.scdn.co/image/ab67616d00001e024108fad328d2d5ab5e76a043)
-
-## [zalagasper: Sebi](https://open.spotify.com/track/1v77GKYhVGrKNH7IIqDfme)
-![zalagasper!](https://i.scdn.co/image/ab67616d00001e024282852ebcaa6da4241c9415)
+## [Ryan Gosling: City Of Stars - From "La La Land" Soundtrack](https://open.spotify.com/track/1xk2Z84gbcn4tPXiiutxzS)
+![Ryan Gosling!](https://i.scdn.co/image/ab67616d00001e02996d684d91fc08b6ec715dbb)
 
 ## [JANNA: Sateet](https://open.spotify.com/track/24Zufs1NBaQiDjuYv6VgDy)
 ![JANNA!](https://i.scdn.co/image/ab67616d00001e02f3c7cf2e0821d5d26592aa9f)
@@ -59,3 +50,12 @@ My monthly top tracks, updated on 5/8/2026, 3:24:14 AM
 
 ## [Vesala: Nyt on lähtö](https://open.spotify.com/track/2xhdfY6mbq6sLE0BzbgQRu)
 ![Vesala!](https://i.scdn.co/image/ab67616d00001e021fe6eac24731c98a818be4fa)
+
+## [Chisu: Kohtalon oma](https://open.spotify.com/track/38qh0PeuxpDHMT55boqgBj)
+![Chisu!](https://i.scdn.co/image/ab67616d00001e022b71b0227a6daba45a2ba6bf)
+
+## [Aki Sirkesalo: Mysteriet (Mysteeri) -Mysteriet deg- (with Lisa Nilsson)](https://open.spotify.com/track/3ZMgFW0P5iO2iN5oLRzwF0)
+![Aki Sirkesalo!](https://i.scdn.co/image/ab67616d00001e02af081858599618166f01ed2a)
+
+## [Eva Dahlgren: För att du är här](https://open.spotify.com/track/65tTCp2tdOFkUvAreEq3eH)
+![Eva Dahlgren!](https://i.scdn.co/image/ab67616d00001e0297e16a2c5078ae2c54eb0409)
