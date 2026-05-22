@@ -1,4 +1,4 @@
-My monthly top tracks, updated on 5/15/2026, 3:42:55 AM
+My monthly top tracks, updated on 5/22/2026, 3:55:34 AM
 
 ## [Katri Helena: Palman mainingit](https://open.spotify.com/track/1tE8gMmdfJdBX3WXIdxCL2)
 ![Katri Helena!](https://i.scdn.co/image/ab67616d00001e0207bd0193c2c7619afe790225)
@@ -48,14 +48,14 @@ My monthly top tracks, updated on 5/15/2026, 3:42:55 AM
 ## [Kerkko Koskinen: Olen heittänyt verkon](https://open.spotify.com/track/2gH7moQk8azKSSYzhWB3n5)
 ![Kerkko Koskinen!](https://i.scdn.co/image/ab67616d00001e02e5af67a2c7ded18346dec8fb)
 
+## [Sanna Nielsen: Hela världen för mig](https://open.spotify.com/track/2lj4kO5PdVBbvIifZIAL2D)
+![Sanna Nielsen!](https://i.scdn.co/image/ab67616d00001e02420820465d2930d6e45beb55)
+
 ## [Vesala: Nyt on lähtö](https://open.spotify.com/track/2xhdfY6mbq6sLE0BzbgQRu)
 ![Vesala!](https://i.scdn.co/image/ab67616d00001e021fe6eac24731c98a818be4fa)
 
 ## [Chisu: Kohtalon oma](https://open.spotify.com/track/38qh0PeuxpDHMT55boqgBj)
 ![Chisu!](https://i.scdn.co/image/ab67616d00001e022b71b0227a6daba45a2ba6bf)
 
-## [Aki Sirkesalo: Mysteriet (Mysteeri) -Mysteriet deg- (with Lisa Nilsson)](https://open.spotify.com/track/3ZMgFW0P5iO2iN5oLRzwF0)
-![Aki Sirkesalo!](https://i.scdn.co/image/ab67616d00001e02af081858599618166f01ed2a)
-
-## [Eva Dahlgren: För att du är här](https://open.spotify.com/track/65tTCp2tdOFkUvAreEq3eH)
-![Eva Dahlgren!](https://i.scdn.co/image/ab67616d00001e0297e16a2c5078ae2c54eb0409)
+## [Sanna Nielsen: I'm In Love](https://open.spotify.com/track/3EFdL3Q4mPrjUgfaO7IomQ)
+![Sanna Nielsen!](https://i.scdn.co/image/ab67616d00001e028e99c3417a7578b4c24cd0ed)
