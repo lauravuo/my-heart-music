@@ -1,4 +1,7 @@
-My monthly top tracks, updated on 6/5/2026, 4:01:32 AM
+My monthly top tracks, updated on 6/12/2026, 4:14:42 AM
+
+## [Jean Sibelius: Fuga for Martin Wegeliusm JS 85](https://open.spotify.com/track/7dGeyuxNLt4AbFuAh3QZPJ)
+![Jean Sibelius!](https://i.scdn.co/image/ab67616d00001e027be2d4cbc01192362594c173)
 
 ## [k.d. lang: Reminiscing](https://open.spotify.com/track/1MOPRl1agkKIePedssPVDc)
 ![k.d. lang!](https://i.scdn.co/image/ab67616d00001e02b799321bc63e31f867fbb5b5)
@@ -11,6 +14,9 @@ My monthly top tracks, updated on 6/5/2026, 4:01:32 AM
 
 ## [Sanna Nielsen: I'm In Love](https://open.spotify.com/track/3EFdL3Q4mPrjUgfaO7IomQ)
 ![Sanna Nielsen!](https://i.scdn.co/image/ab67616d00001e028e99c3417a7578b4c24cd0ed)
+
+## [Kaija Koo: Ajoin koko yön](https://open.spotify.com/track/6KhWXvpauFwEyxqg8f5hx4)
+![Kaija Koo!](https://i.scdn.co/image/ab67616d00001e02d9574b788034fd5f2ddc5c94)
 
 ## [Eini: Oi mikä voima](https://open.spotify.com/track/6NbHBCN1T359t98Wl5cYB6)
 ![Eini!](https://i.scdn.co/image/ab67616d00001e02c210963f06eee8de7f7bfe4a)
@@ -53,9 +59,3 @@ My monthly top tracks, updated on 6/5/2026, 4:01:32 AM
 
 ## [Rebekka Holi: Huoleton](https://open.spotify.com/track/0reqpCIQoHVkzim0pFyLgK)
 ![Rebekka Holi!](https://i.scdn.co/image/ab67616d00001e02c0786eb462263360cd4dbeb5)
-
-## [Kati Wolf: What about my dreams? - Eurovision Edit (Hunglish)](https://open.spotify.com/track/0wRtmHyLpJJH5SHEC2H5Ji)
-![Kati Wolf!](https://i.scdn.co/image/ab67616d00001e0299e725ed75838bcf22df9cf6)
-
-## [J. Karjalainen Yhtyeineen: Telepatiaa](https://open.spotify.com/track/0zZ6NYUgYCmFIh2Y8VLVqG)
-![J. Karjalainen Yhtyeineen!](https://i.scdn.co/image/ab67616d00001e02337afa950cfa9ad741e9098a)
