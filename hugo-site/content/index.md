@@ -1,61 +1,61 @@
-My monthly top tracks, updated on 6/12/2026, 4:14:42 AM
+My monthly top tracks, updated on 6/19/2026, 4:42:50 AM
+
+## [Iida Sams: Just hyvä](https://open.spotify.com/track/0rasVJc7V24BeqHegSTATa)
+![Iida Sams!](https://i.scdn.co/image/ab67616d00001e027d59977e0aeac2e7e4142974)
+
+## [Paul McCartney: Home to Us](https://open.spotify.com/track/6dgdCcjRVJk4MonhSzyqro)
+![Paul McCartney!](https://i.scdn.co/image/ab67616d00001e02b77687e2af1718917b805977)
 
 ## [Jean Sibelius: Fuga for Martin Wegeliusm JS 85](https://open.spotify.com/track/7dGeyuxNLt4AbFuAh3QZPJ)
 ![Jean Sibelius!](https://i.scdn.co/image/ab67616d00001e027be2d4cbc01192362594c173)
 
-## [k.d. lang: Reminiscing](https://open.spotify.com/track/1MOPRl1agkKIePedssPVDc)
-![k.d. lang!](https://i.scdn.co/image/ab67616d00001e02b799321bc63e31f867fbb5b5)
+## [Deep Purple: Arrogant Boy](https://open.spotify.com/track/7zum4C6Vqm4G6HqeDvjN4Y)
+![Deep Purple!](https://i.scdn.co/image/ab67616d00001e02bd111fcd1c01330560145ee3)
 
-## [Ryan Gosling: City Of Stars - From "La La Land" Soundtrack](https://open.spotify.com/track/1xk2Z84gbcn4tPXiiutxzS)
-![Ryan Gosling!](https://i.scdn.co/image/ab67616d00001e02996d684d91fc08b6ec715dbb)
+## [The Ark: If I Ever Lose My Temper](https://open.spotify.com/track/0xzmVwoAyRBVU6wOctHLcd)
+![The Ark!](https://i.scdn.co/image/ab67616d00001e023d7355e171b0fd69d5fa8c9f)
 
-## [Sanna Nielsen: Hela världen för mig](https://open.spotify.com/track/2lj4kO5PdVBbvIifZIAL2D)
-![Sanna Nielsen!](https://i.scdn.co/image/ab67616d00001e02420820465d2930d6e45beb55)
+## [Foo Fighters: Of All People](https://open.spotify.com/track/1zIvUuzmbvaZNHhMJuaAaq)
+![Foo Fighters!](https://i.scdn.co/image/ab67616d00001e02133f31ee504e90d25ca0392d)
 
-## [Sanna Nielsen: I'm In Love](https://open.spotify.com/track/3EFdL3Q4mPrjUgfaO7IomQ)
-![Sanna Nielsen!](https://i.scdn.co/image/ab67616d00001e028e99c3417a7578b4c24cd0ed)
+## [joku iiris: Elämältä kaiken sain](https://open.spotify.com/track/2wHPnQW3kzepVK5QzjKV79)
+![joku iiris!](https://i.scdn.co/image/ab67616d00001e028523b7a70950408408d84bd4)
 
-## [Kaija Koo: Ajoin koko yön](https://open.spotify.com/track/6KhWXvpauFwEyxqg8f5hx4)
-![Kaija Koo!](https://i.scdn.co/image/ab67616d00001e02d9574b788034fd5f2ddc5c94)
+## [Knipi: Sivellinvetoja](https://open.spotify.com/track/4Ok8urF2bORmuWUItpfI9q)
+![Knipi!](https://i.scdn.co/image/ab67616d00001e02d1b1e0ec4c136e08274a79d3)
 
-## [Eini: Oi mikä voima](https://open.spotify.com/track/6NbHBCN1T359t98Wl5cYB6)
-![Eini!](https://i.scdn.co/image/ab67616d00001e02c210963f06eee8de7f7bfe4a)
+## [Tori Amos: Gasoline Girls](https://open.spotify.com/track/5qc8EwoVmllhAL9jTk7kKb)
+![Tori Amos!](https://i.scdn.co/image/ab67616d00001e02d3876103bd75448785cf6d91)
 
-## [Patricia Kaas: Et S'il Fallait Le Faire](https://open.spotify.com/track/068tmpCeSwnAWm3XtECRj9)
-![Patricia Kaas!](https://i.scdn.co/image/ab67616d00001e020482d82e543eb06337f6c9a2)
+## [Laura Moisio: Jotain muuta](https://open.spotify.com/track/7dzKtk0HI4n1sFPPjudMqk)
+![Laura Moisio!](https://i.scdn.co/image/ab67616d00001e02431619df4e6bd7678b58f515)
 
-## [Ami Aspelund: Fantasiaa](https://open.spotify.com/track/0LlNVRG3DsJNHBKZHuJ4tC)
-![Ami Aspelund!](https://i.scdn.co/image/ab67616d00001e02392bf1ea9af41c71e8f2dfb8)
+## [Thelise: Saat vielä kaiken ihanan](https://open.spotify.com/track/0VHlWU8mPPyc8L6NPpSD99)
+![Thelise!](https://i.scdn.co/image/ab67616d00001e02349770346f96a6c491b0ed18)
 
-## [Von Hertzen Brothers: Let Thy Will Be Done](https://open.spotify.com/track/0MJOHNe0KgKo7A0RAgQbap)
-![Von Hertzen Brothers!](https://i.scdn.co/image/ab67616d00001e020cdb21c1834faab189bac97e)
+## [MAMMA: SEROTONIINI](https://open.spotify.com/track/06Yin7sJeK8ePQ2HhkiL7u)
+![MAMMA!](https://i.scdn.co/image/ab67616d00001e02bf476c8308537da91b98b047)
 
-## [Johanna Kurkela: Ei panikoida](https://open.spotify.com/track/0P6tULQrfHitmk2NBjysyP)
-![Johanna Kurkela!](https://i.scdn.co/image/ab67616d00001e02f2702dd1a1479d88bee26835)
+## [Hene Jääsalo: Pitsipaita](https://open.spotify.com/track/0J3i2oHMLalayVWudC6GNM)
+![Hene Jääsalo!](https://i.scdn.co/image/ab67616d00001e02ca2d9eeacd937a62df1e2be1)
 
-## [Milan Stankovic: Ovo je Balkan](https://open.spotify.com/track/0W3XSKkaKYq38KPQPnsa9M)
-![Milan Stankovic!](https://i.scdn.co/image/ab67616d00001e020bb8c8da868ef2153a624ee3)
+## [Jutta Rahmel: Roswellin hiekkaa](https://open.spotify.com/track/0M6DUio6QK0xpUChWw1OyC)
+![Jutta Rahmel!](https://i.scdn.co/image/ab67616d00001e02c1d9038616ad4a2d515524ed)
 
-## [Selkä & Issias: Toukokuu](https://open.spotify.com/track/0Y6UvD0zPKN9Tpenzm3piP)
-![Selkä & Issias!](https://i.scdn.co/image/ab67616d00001e02324161e29053e2ec71ce049c)
+## [Grandiradio: Etsi 5 virhettä](https://open.spotify.com/track/0ddW8MjbHYvu035R0aticC)
+![Grandiradio!](https://i.scdn.co/image/ab67616d00001e026d629cb985615705c766d19f)
 
-## [ABREU: Sytyn](https://open.spotify.com/track/0bup6XzvVJUL8wKUI0P1AP)
-![ABREU!](https://i.scdn.co/image/ab67616d00001e023a24aabe6c5e241d13c97f8f)
+## [Maija Vilkkumaa: Oo mun kaa](https://open.spotify.com/track/0gUeH4lixEwsW1iNWER5Fo)
+![Maija Vilkkumaa!](https://i.scdn.co/image/ab67616d00001e027b2571c2275512b5a5dadc79)
 
-## [Perhosii: Huone](https://open.spotify.com/track/0eGODtdbTDXE0iWzh2PFM2)
-![Perhosii!](https://i.scdn.co/image/ab67616d00001e02aee30a2c84dbdb0657073693)
+## [Olli Helenius: 3 Yötä Juhannukseen](https://open.spotify.com/track/0iAp9l8qtGkqGcGiVHjtk3)
+![Olli Helenius!](https://i.scdn.co/image/ab67616d00001e025e3e1655107aee085043fed0)
 
-## [Bucks Fizz: Making Your Mind Up](https://open.spotify.com/track/0i4U1Sd2R7MtEKSAHc9i8b)
-![Bucks Fizz!](https://i.scdn.co/image/ab67616d00001e0243665aa6d36b8cb1ce1ec0a6)
+## [Keidas: Kaipaan sinua Eemeli](https://open.spotify.com/track/140IsD0Z1QxujYtfaT0N0t)
+![Keidas!](https://i.scdn.co/image/ab67616d00001e0220175681d347457470827d06)
 
-## [Sumuposauttaja Band: Hide (Reprise)](https://open.spotify.com/track/0iLOqvDAMKkM2sJFGX6BGp)
-![Sumuposauttaja Band!](https://i.scdn.co/image/ab67616d00001e02582d051e28f19dddfafaedb6)
+## [Pekka Nisu: Tuolta se nyt kävelee](https://open.spotify.com/track/18gjoFK9e8hbFIsFlMCvpx)
+![Pekka Nisu!](https://i.scdn.co/image/ab67616d00001e02140825609303e0fae3f04c92)
 
-## [Zaz: Champs-Elysées](https://open.spotify.com/track/0lxV7IydOdiJ6BKrkhtDhX)
-![Zaz!](https://i.scdn.co/image/ab67616d00001e0243ddfb314d892a8f3864a57f)
-
-## [Brat Star: Margot Tenenbaum](https://open.spotify.com/track/0mVl3BQkaK38OHUJ3AU7Tb)
-![Brat Star!](https://i.scdn.co/image/ab67616d00001e020ce492230583f357da45e28a)
-
-## [Rebekka Holi: Huoleton](https://open.spotify.com/track/0reqpCIQoHVkzim0pFyLgK)
-![Rebekka Holi!](https://i.scdn.co/image/ab67616d00001e02c0786eb462263360cd4dbeb5)
+## [Alter Annala: Kuolinpesä](https://open.spotify.com/track/1H0FTlJN2MGmtNtJLm170e)
+![Alter Annala!](https://i.scdn.co/image/ab67616d00001e025b928f8c64e64863f546dc86)
